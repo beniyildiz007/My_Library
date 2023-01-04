@@ -156,32 +156,62 @@ Zamanımızdan gelecek en büyük değeri çıkarma saplantımız, yaşamın öl
 Ve bu nedenle, varolşunuzun "gerçek anlamını" geleceğe ertelemeyi bırakıp kendinizi şimdi hayata atsanız iyi olur.
 
 # Hiçbir Şey Yapmamak İçin Pratik Yapın
+Dört bin haftanızdan en iyi şekilde yararlanma zorluğu söz konusu olduğunda, içbir şey yapmama yeteneği çok önemlidir.
+Çünkü hareket etmemenin rahatsızlığına katlanamıyorsanız, zamanınız konusunda yanlış seçimler yapma olasılığınız çok daha yüksektir.
+Hiçbir şey yapmamak teknik olarak imkânsızdır.
+Yaşadığınız sürece sürekli nefes alırsınız, bazı fiziksel duruşlar benimsersiniz vb.
+Bu nedenle, kendinizi "hiçbir şey yapmamak" için eğitmek, gerçekten, deneyiminizi veya çevrenizdeki insanları ve şeyleri manipüle etme dürtüsüne direnmek için kendinizi eğitmek anlamına gelir.
+İşte çözüm: "Hiçbir Şey Yapmamak" meditasyonudur.
+Bu meditasyonda, talimatların basitçe bir zamanlayıcı ayarlaması, muhtemelen ilk başta sadece beş veya on dakika olması, bir sandalyeye oturması ve sonra herhangi bir şey yapmaya çalışmayı bırakması yer alıyor.
+Düşünmek, nefesinize odaklanmak veya başka bir şey yapmakla ilgili olsun, yaptığınızı fark ettiğinizde her ne yapıyorsanız yapmayı bırakın.
+Zamanlayıcı kapanana kadar hiçbir şey yapmamaya devam edin.
+
+Yazar ve sanatçı Jenny Odell, "hiçbir şey, hiçbir şey yapmamaktan daha zor değildir" diyor.
+Ancak bunda daha iyi olmak, özerkliğinizi yeniden kazanmak anlamına gelir.
+Şu anda gerçekliğin nasıl hissettiğinden haçınma arzusuyla motive olmayı bırakmak, sakinleşmek ve dünyadaki sınırlı zamanınızla daha iyi seçimler yapmak demektir.
 
 # Sabır
+Sabır, zamansal kısıtlamalara teslim olarak daha derin bir özgürlük bulmanın mümkün olduğu bir yoldur.
+Sabır, güç eksikliğine psikolojik bir adaptasyon, ilerideki daha iyi günlerin teorik umudunda kendinizi düşük konumunuza bırakmanıza yardımcı olmayı amaçlayan bir tutumdur.
+Ancak toplum geliştikçe bir şeyler değişir.
+Sabır, çeşitli bağlamlarda giderek artan bir şekilde bir güç biçimi haline geldi.
+Hız için tasarlanmış bir dünyada, acele etme-işlerin zamanını almasına izin verme- dürtüsüne direnme yeteneği, dünyaya hâkim olmanın, önemli olan işi yapmanın ve yapılanın kendisinden tatmin olmanın bir yoludur.
+
+Gerçekliğin kendi hızında ortaya çıkmasına izin verme deneyiminden o kadar rahatsızız ki, bir sorunla karşılaştığımızda, kendimize durumla "başa çıktığımızı" söyleyebildiğimiz sürece herhangi bir çözüme doğru yarışmak daha iyi hissettiriyor.
+Bu nedenle, ortaklarımızı dinlemek yerine onlara sert davranırız çünkü beklemek ve dinlemek bize durumun kontrolü elimizde değilmiş gibi hissettirir.
+Ya da zorlu yaratıcı projeleri ya da büyüyen romantik ilişkileri terk ederiz, çünkü bir şeyleri nasıl gelişeceklerini görmek için beklemektense terk edip gitmekte daha az belirsizlik vardır.
+
+Günlük yaşamda yaratıcı bir güç olarak sabrın gücünden yararlanmada iki genel kural özellikle yararlıdır.
+Birincisi, sorun yaşama zevkini geliştirmektir.
+Her engeli ya da zorluğu aşmak için acele etme arzumuzun arkasında, genellikle bir gün hiç problem yaşamama durumuna ulaşacağınız gibi dile getirilmeyen fantezi vardır.
+Ancak hiçbir sorun yaşamama durumu hiçbir zaman gelmeyecektir.
+Ve daha da önemlisi, bunu istemeyeceksiniz, çünkü tüm sorunlardan arınmış bir yaşam, yapmaya değer hiçbir şey içermeyecek ve dolayısıyla anlamsız olacaktır.
+Tüm  sorunlarınızı ortadan kaldırmaya yönelik ulaşılmaz hedeften vazgeçtiğinizde, hayatın sadece sorun üstüne sorunla başa çıkma süreci olduğu gerçeğini takdir etmeye başlayabilirsiniz.
+
+İkinci ilke, radikal artımcılıktır.
+Radikal artancı yaklaşımın kritik bir bileşeni, enerjiyle dolup taşıyor olsanız ve daha fazlasını yapabileceğinizi hissetseniz bile, günlük zamanınız dolduğunda durmaya istekli olmaktır.
+Bunun nedeni ise durmanın sabır kasını güçlendirmesi, projeye tekrar tekrar dönmenize izin vermesi ve tüm kariyeriniz boyunca üretkenliğinizi sürdürmenizdir.
+Hayatın birçok alanında, farklı bir yöne gitmek için güçlü bir kültürel baskı vardır.
+Ancak bu şekilde her zaman olağandışı olanı takip ederseniz, kendinizi diğer daha zengin belirsizlik biçimlerini deneyimleme fırsatından mahrum edersiniz.
+Bu ilke, acele etmek yerine, durmaya ve olduğunuz yerde olmaya ve yolculuğun bu kısmıyla da meşgul olmaya istekli olmayı gerektirir.
 
 # Zamana Hükmedebilir Miyiz?
+Zaman bizlere bir mücadele gibi geliyor çünkü sürekli olarak ona hâkim olmaya ve kendimizi nihayet güvende hissedebilmemiz ve olaylara karşı savunmasız hissetmememiz için üzerinde bir hakimiyet kurmaya çalışıyoruz.
+Bazılarımız için mücadele, bir daha asla başkalarını hayal kırıklığına uğratmanın suçluluğunu yaşamak zorunda kalmayacağımız veya düşük performans gösterdiğimiz için kovulma endişesi yaşamayacağımız kadar üretken ve verimli olma girişimi olarak kendini gösterir.
+Ya da en büyük hırslarımızı gerçekleştirmeden ölme ihtimaliyle yüzleşmekten kaçmak olarak kendini gösterir.
+
+Ancak ne yazık ki, mücadele başarısızlığa mahkûmdur.
+Zamanınız çok kısıtlı olduğu için, size yöneltilen her talebi ele alacak ya da önemli hissettiren her hırsın peşinden gidecek hâkim konumda asla olmayacaksınız; bunun yerine zor seçimler yapmak zorunda kalacaksınız.
+Ve sahip olduğunuz sınırlı zaman diliminde olup bitenlerin çoğunu kontrol edemediğiniz, hatta doğru bir şekilde tahmin edemediğiniz için, olayların kontrolünde asla güvende hissetmeyeceksiniz.
+
+Zaman hakkındaki gerçekle bu şekilde yüzleşebilirseniz, ilk etapta planlarınızda bulunan en yüksek üretkenlik, başarı, hizmet ve gerçekleştirme seviyelerine ulaşacaksınız.
+Ve dikiz aynasında yavaş yavaş şekillendiğini göreceğiniz hayat, haftalarınızı iyi kullanmanın ne anlama geldiğine dair tek kesin ölçüyü karşılayan bir hayat olacaktır: kaç kişiye yardım ettiğiniz veya ne kadar başardığınız değil; ama tarihteki anınızın ve sınırlı zamanınızın ve yeteneklerinizin kısıtlamaları dâhilinde çalışarak, hayatınızı tam anlamıyla yaşamaya başlarsınız.
 
 # Final
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Ortalama insan ömrü saçma ve aşağılayıcı derecede kısadır.
+Ancak bu, sürekli olarak depresyonda olmak veya sınırlı zamanınızı en iyi şekilde değerlendirme konusunda endişeli bir panik içinde yaşamak için bir neden değildir.
+Bu bir neşe kaynağıdır.
+Her zaman imkânsız görünen bir şeyden vazgeçersiniz: optimize edilmiş, sonsuz yetenekli, duygusal olarak yenilmez, olmanız gereken bağımsız kişi olma arayışı vb...
+Bunun yerine, kollarınızı sıvayacak ve muhteşem bir şekilde mümkün olan şey üzerinde çalışmaya başlayacaksınız.
+Sınırlı zamanınız hakkındaki gerçeği benimsemek ve sınırlı zamanınız üzerinde kontrol sağlamak size asıl güç veren şeydir.
+Olduğu gibi gerçekliğe daha fazla adım atarak, gerekli olandan daha fazlasını başarabilecek ve bu konuda daha tatmin olmuş hissedeceksiniz.
