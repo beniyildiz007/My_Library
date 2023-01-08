@@ -106,7 +106,7 @@ Erkekler ihtiyaçları fizyolojik, kadınların ihtiyaçları ise psikolojiktir.
 Kadınlar evliliklerinde kendilerini sömürülüyormuş gibi hisseder çünkü erkeğin ilgisinin cinsel yönde olduğunun farkındadır.
 Kadın ve erkeğin de eğitime ihtiyacı vardır.
 Onlar birbirlerini psikolojik ve fizyolojik olarak anlamalıdır.
-(Yine katılıyorum. En çok da senin eğitime ihtiyacın var.)
+(Yine katılıyorum, her bireyin eğitime ihtiyacı vardır.)
 
 # Yapılarımız
 Bazı insanlar kendilerini hem kadın gibi, bazı günlerde ise erkek gibi hissettiğini düşünür ve bunun sonucunda şizofreni hastalığına kapıldığını düşlerler.
