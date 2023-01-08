@@ -77,4 +77,81 @@ Bırakma şansımızın farkına varmak zor olabilir.
 Kendimize yüklediğimiz ortak bir yük ortada: düşüncelerimizle sürekli çekişmemiz.
 Sizi ele geçirdikten sonra kendinizi bu mücadeleden kurtarmak konusunda çok şey öğrendiniz, peki ya ilk etapta savaşa girmemeyi seçmeye ne dersiniz?
 
+Büyük stres zamanlarında, aynı genel endişeyle ilgili olsalar bile, sahip olduğunuz çeşitli düşünce türlerine dikkat etmek çok önemlidir.
+Yararlı ve yararsız spektrumda kendi noktanızı tanımalısınız.
+Gereksiz, işlevsiz, abartılı veya aşırı yıkıcı düşünceleri bırakma cesaretini toplayın -bazı gerçekler içerseler bile.
+Aşağıdaki iki soruyu düşünün:
+1. Bu düşünce aydınlatıcı mı?
+Planımı netleştirmemde bana yardımcı oluyor mu?
+2. Bu düşünce beni daha hazırlıklı ya da daha güçlü yapıyor mu?
+
+Bu soruların her ikisinin de cevabı hayır ise, yanlış bir düşünceymiş gibi davranın.
+Düşüncenin ne olduğunun farkına varın: bir düşünce.
+İşte hemen şimdi vazgeçmeye başlayabileceğiniz şeyler:
+* geçmiş hatalar
+* işler nasıl "olmalıydı"
+* gelecekteki benliğinizin geçmiş vizyonunuz
+* artık size uymayan hedefler
+
+Herhangi bir tuzak gibi bir savunma mekanizması da yarardan çok zarar verme potansiyeline sahiptir.
+Taşıdığımız yüklerin yanı sıra, yüzleşmek istemediğiniz duygulardan veya gerçeklerden kaçmak için tekrar tekrar başa çıkma stratejileri olarak kullandığınız savunma mekanizmaları geliştirmiş olabilirsiniz.
+Bunlardan herhangi birini kendinizde tanımlayabiliyor musunuz?
+* İnkâr
+* Projeksiyon
+* Rasyonelleştirme
+* Yer değiştirme
+* Bastırma
+
+Dünyayı gördüğümüz mercekler yalnızca bizimdir.
+Kör noktalarımızı incelemek için zaman ayırdığımızda, lenslerimiz daha hassas ve daha doğru hale gelir.
+Kişisel düşünce çarpıklıklarınızı anlamak -ki bunu pek çok insanla paylaşırsınız- onları işlevsiz olarak etiketlemenize izin verir ve tıpkı diğer kendi kendine konuşma türleriyle yapmayı öğrendiğiniz gibi geçmelerini sağlar.
+Kör noktalarınızı kaldırarak üstesinden gelemeyeceğinizi düşündüğünüz şeyleri görebilirsiniz, ancak onlara zihninizi ve gözlerinizi açarak yapabileceğinizi fark edersiniz.
+
+# Onay ve Gerçek Bağlantı
+Değer duygunuzu bulmak, bir amaç ve anlam duygusu geliştirerek yardımcı olabilir.
+Ama bu değer duygusunu ortadan kaldıran o kadar çok şey vardır.
+Hayatınız boyunca, kendiniz hakkında ne düşündüğünüzün ve hissettiğinizin temeli olarak hizmet eden sayısız "olması gereken" ve karşılaştırmanın yanı sıra çok sayıda beklenti ve standart içselleştirirsiniz.
+Ne yazık ki, genellikle temelde işlevsizdirler.
+Herkes sosyal medyayı kullanmasa da, sosyal medya, onaylanma ile gerçek bağlantı ve öz değer arasındaki farklar hakkında konuya başlamak için harika bir yerdir.
+
+Tercih ettiğiniz sosyal medya platformuna güzel bir selfie yüklüyorsunuz.
+Sonra... tepki bölümünde işler yavaşlar.
+Gönderinizin pek dikkat çekmediğini düşünürsünüz.
+Sonunda beğeniler artmaya başlar.
+Rahatlarsın.
+Belki de kabul etmek istediğinden biraz daha rahatlamış hissedersin.
+Üniversitedeki oda arkadaşınızın, kız kardeşinizin veya komşunuzun neden gönderinizi henüz beğenmediğini merak edene kadar daha iyi hissetmeye devam edersiniz.
+
+Ne zaman bir şey yayınlasan kendini ortaya koyar ve birinin yanıt vermesini beklersin.
+Tıklıyorsun, sonra geri dönüyorsun.
+Bu arada, duygularınızı ve hatta muhtemelen öz değerinizi algoritmaların ve Wi-Fi bağlantılarının insafına bırakıyorsunuz.
+Kendinizle başka bir insan arasında bir bariyer oluşturdunuz ve ona duygularınızı manipüle etme yeteneği verdiniz.
+İlk "beğeni" gelmeden önce veya yeterince beğeni gelmeden önce (hatta beğeniler geldikten sonra, eğere doğru beğeniler değilse) kendinizi bir süre daha yalnızlaştırdınız.
+Hepsi bağlantı kurmaya çalışmak ve yalnız hissetmemek için!
+
+Yalnızlık sadece kötü bir duygu değildir; sağlığınıza da zararlı olabilir.
+Yalnızlık, kronik hastalık prognozunuzu kötüleştirir, bağışıklık sisteminizi zayıflatır ve kalbiniz üzerinde ölçülebilir olumsuz etkileri vardır.
+Verilere göre, kronik olarak yalnız ve sosyal olarak yalıtılmış hissetmek, ölümlülük açısından günde on beş sigara içmeye eşdeğerdir.
+Yalnızlık ve topluluk çöküşün, giderek artan bir şekilde, opioid bağımlılığı ve aşırı doz ölümleri salgınıyla doğrudan bağlantılı olduğu düşünülmektedir.
+
+Gerçek bağlantı ve duygusal yakınlık, yalnızlığın zıttıdır.
+Ancak, sosyal medya çağında gerçek bir bağlantı kurmak kafa karıştırıcı olabilir.
+Bir yandan, başkalarıyla her zamankinden daha fazla "bağlıyız" çünkü nereye gidersek gidelim onların günlük yaşamlarıyla ilgili bilgileri yanımızda taşırız.
+Yine de bu, yalnızlığımızı hafifletmez, aksine daha da şiddetlendiriyor gibi görünür.
+Ancak, bütün, otantik benliğinizle, diğer insanlara ve hayata açık olarak yaşamak istiyorsanız, engelleri yıkmalısınız.
+Filtreleme ve düzenleme yapmadan, size yeterince iyi olmadığınızı söyleyen olumsuz iç konuşmayı bırakmalısınız.
+Bu, fiziksel dünyanızda daha fazla şey yapmayı gerektirir: akşam yemeğinde telefonunuzu cebinizde koyup orada bırakmak, insanları evinize davet etmek, kasiyerin adını hatırlamak vb.
+
+# İrade ve Hedefler
+İrade gücünün bize her konuda yardım etmesi gerekir.
+İrade, düşüncelerimizin yeterince "güçlü" olması gerektiği fikrine dayanır.
+Koşullarımızı veya çevremizi boş verin(!).
+Sadece irademizin gücüyle her şeyin üstesinden gelebilmeliyiz diye düşünürüz.
+Tek yapmamız gereken bir şey düşünmek olduğuna inanmak güç verici görünür ve gerçekleşecekmiş gibi gelir: kilo vermek, bir alışkanlığı bırakmak veya yeni bir kariyere başlamak vs.
+Kendimizi başarısız olmaya hazırladığımızda işler daha az ilham verici olur.
+Kendimizi, prensipte, genellikle onlara söylediğimizi yapmayı reddeden düşüncelerimizin insafına bırakıyoruz.
+Ve ilgili fikir -eğer hayatta iyi şeyler elde edemezsek, bunun nedeni düşüncelerimizin "başarısız olması" çünkü yeterli zihinsel güce sahip olmadığımızdır- daha da zararlıdır.
+Bu, ya yeterince istemediğimizi ya da daha kötüsü, basitçe zayıf olduğumuzu düşünmemize yol açar.
+
+
 
