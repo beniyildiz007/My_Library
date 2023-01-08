@@ -132,7 +132,7 @@ Bilinçaltımız her zaman temiz bir yer değildir.)
 
 Bazen büyük öfke anlarında bir kadın bir erkekten daha tehlikeli hale gelir ve bazı yumuşak anlarda bir erkek bir kadından daha sevgi dolu hale gelebilir.
 Bu anlar sürekli değişip durur.
-u ruhsal iklimi de yaşamak zorundasın bu nedenle şizofren falan olduğunu aklına getirme.
+Bu ruhsal iklimi de yaşamak zorundasın bu nedenle şizofren falan olduğunu aklına getirme.
 Bu ikilik doğanın bir parçasıdır.
 
 ***(Okuduğum bu kitap hakkında kendi düşüncelerimi yazmak istiyorum:***
