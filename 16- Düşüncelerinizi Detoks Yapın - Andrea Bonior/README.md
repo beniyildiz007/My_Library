@@ -153,5 +153,70 @@ Kendimizi, prensipte, genellikle onlara söylediğimizi yapmayı reddeden düş�
 Ve ilgili fikir -eğer hayatta iyi şeyler elde edemezsek, bunun nedeni düşüncelerimizin "başarısız olması" çünkü yeterli zihinsel güce sahip olmadığımızdır- daha da zararlıdır.
 Bu, ya yeterince istemediğimizi ya da daha kötüsü, basitçe zayıf olduğumuzu düşünmemize yol açar.
 
+Ancak, gördüğümüz gibi, düşüncelerimize boyun eğmek, kendi kendine yeterli, aktif bir yaşam sürmenin yolu değildir.
+Bunun yerine, düşüncelerimizi gözlemlemeyi ve onlara karşı olan şekillerde hareket etmeyi seçebiliriz.
+Davranışınız yalnızca anlık, bilinçli düşünceleriniz ve hayalleriniz tarafından belirlenmez.
+Siz bilinçli düşüncelerinizin toplamından daha fazlasısınız
+* HEDEFLERİN ÖZEL VE SONUÇ OLMASI GEREKİR
+* HEDEFLER YÖNETİLİR VE GERÇEKÇİ OLMALIDIR
+* HEDEFLER SONUÇLARLA DEĞİL ÇABALARLA TANIMLANMALIDIR
+* HEDEFLERİN ZAMAN SINIRLI OLMASI GEREKİR
+* HEDEFLERİN NET BİR YOLU OLMASI GEREKİR
 
+Bunlaırn hepsini biliyoruz, ancak iş hayatımızda daha incelikli değişiklikler yapmaya gelince, irade gücü saçmalığına geri dönüyoruz.
+Herhangi bir uyarana veya ayartmaya direnme gücünü toplamada irade gücünün en önemli faktör olduğuna inanmak istiyoruz.
+Başarımızı destekleyen bir ortam yaratmadığımızda ise dış koşulları ele almak yerine kendi iç dünyamızı suçlarız.
+Ve bu suçlama, değişme yeteneğimiz konusunda daha da umutsuz olmamıza ve dolayısıyla daha az kontrole sahip olmamıza neden olur.
+Bunun yerine, yarattığımız ortamlara daha fazla odaklanmalıyız.
+Hayatınızdaki hangi alışkanlıkları değiştirmek istiyorsunuz?
+Onlara katkıda bulunan durumsal tetikleyicileri ve bu tetikleyicileri nasıl değiştirebileceğinizi düşünün.
+
+Alışkanlıklar kalıcıdır çünkü onları korumanın gerçekçi, sürdürülebilir yollarını keşfettik -ve bu kendi kendini devam ettirir, çünkü bir şeyi ne kadar çok yaparsak, alışkanlık o kadar güçlü olur.
+Kaç kez farkında olmadan eve döndünüz veya metrodan indiniz?
+Bu gibi gündelik şeyler içinizde kökleşmiştir.
+Bu sağa dönmek doğuştan veya evrimsel değildir.
+Sadece çok fazla pratik yaptın demektir.
+Arzu ettiğiniz alışkanlıkları geliştirmek için gereken çabayı ve zamanı azaltmak için ortamınızı değiştirirn.
+Ardından günleri daha başarılı bir şekilde işaretlemeye başlayabilirsiniz.
+Bu uyaran kontrolü olarak bilinir.
+Motivasyonun veya iradenin size gelmesini beklemeyin.
+Çevrenizin sizin için çalışmasını sağlayabilirsiniz.
+
+# Varış
+Henüz tam olarak sizin "siz" olmadığınızı hissettiniz mi?
+Bir kez terfi aldığınızda/hayatınızı organize ettiğinizde/forma girdiğinizde/bir ortak bulduğunuzda/o sağlık sorununu çözdüğünüzde/daha iyi bir yaşam sürdüğünüzde, vb, vb. -hayatta her zaman vb'leriniz olacaktır.
+Ama ya siz -şu anda bunu okuyan kişi- gerçek sizseniz?
+Hayatınızdaki bu anın, uzak gelecekte hayali bir an kadar zengin, ödüllendirici ve ilgi çekici olma potansiyeline sahip olduğu, ya gerçekse?
+
+Efsaneler, gelecekte belirli bir noktaya ulaştığımızda her şeyin sihirli bir şekilde düzeleceğini iddia ederek bizi yanıltır.
+Bize ancak o zaman mutlu/tatmin/çekici/kendine güvenen/düzenli/hızlı/sevilen/zengin olacağımız izlenimini verir.
+Elbette, geleceği düşünmek faydalı olabilir, örneğin bizi gerçekten motive eden ve değerlerimizle uyumlu hedefler belirlediğimizde.
+
+Bununla birlikte, varış efsanesi, burada ve şimdimizi geliştiren olumlu bir yoldan ziyade, şimdiki yaşamlarımızdan uzaklaşan olumsuz bir geleceğe bakmamıza neden olur.
+Varış efsanesi bizi, gelecek yaşamlarımızın belirli bir noktasında "vardımızda" herşeyin yerli yerine oturacağına ikna etmeye çalıştığı için, şimdiki yaşamlarımızda her zaman işlerin yerinde olmayacağına işaret eder.
+Gelecekte sadece o noktada yaşıyorsak, şimdi gerçekten yaşamıyoruz, o halde neden deneriz?
+Geleceki Siz'in yerine getirilmesine ne kadar çok odaklanırsanız, kendinizi Şimdiki Siz'in buna layık olmadığına o kadar ikna edersiniz.
+
+Hayat çoktan başladı.
+Onlarca yıl olmasa da yıllardır sizin için oradaydı.
+Kendinize gelecekte bazı şeylerin olacağını ve ancak o zaman gerçek hayatınızın başlayacağını söylediğinizde, hayatınızı şu anda istediğiniz şekilde yaşamayı seçme özerkliğinden vazgeçmiş olursunuz.
+Hem sevinci hem de anlamı ertelersin.
+Arzu ettiğiniz şeyleri hak etmediğinize, henüz yeterince iyi bir insan olmadığınıza kendinizi inandırıyorsunuz.
+Ancak öylesin.
+Sadece bir hayatınız var, o da bugün ve başka hiç kimsenin onu yaşama fırsatı yok.
+Hayatınız tamamen size ait.
+Peki, neyi bekliyorsun?
+Sen zaten yeterlisin.
+
+# Son Özet
+Kendiniz üzerinde çalışmak, hayatınızın geri kalanında yapabileceğiniz bir şeydir.
+Şu anda nerede olduğunuzu kabul edecek kadar kendinize iyi davranmaya ve daha gidecek çok yolunuz olduğunu bilseniz bile, elde ettiğiniz küçük zaferler için kendinizi tebrik etmeye hazır mısınız?
+Hoş olmayan fikirleri yok etmiyorsunuz; bunun yerine, onlardan daha büyük oluyorsunuz -ve kendinizi nasıl gördüğünüzü veya hayatınızı nasıl yaşadığınızı temelden değiştirmeyecek şekilde onları deneyimleme yeteneğinizi geliştiriyorsunuz.
+Bunu uyguladığınız her gün, ertesi gün yapmayı kolaylaştıracak bir alışkanlık geliştiriyorsunuz.
+Hayal edebileceğinizden daha derin, daha meşgul, daha özgün bir şekilde büyüme potansiyeliniz var.
+Kendinizi tanımaktan ve bulduğunuz şeye açık bir kalple ve tamamen açık gözlerle bakmaktan korkmayın.
+
+```py
+print("Sevdim bu lanet olası kitabı dostum!")
+```
 
