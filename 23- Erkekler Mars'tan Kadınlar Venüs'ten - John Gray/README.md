@@ -189,6 +189,6 @@ Aynı şey kadın için de geçerli; bir çıkarı olmayan kadın, erkeğini öv
 Her şey bir çıkar meselesidir: erkeğin çıkarı kadının vücudu, kadının çıkarı ise erkeğin gücü.
 Güç istenci erkeklerde değil kadınlarda daha fazladır. Erkekler gücü, kadınları elde etmek için isterler.
 Binlerce yıl önce bile, en güçlü ve en savaşçı askerlere en güzel kadınları ödül olarak verirlerdi.
-Kadın, gücü erkekten daha çok arar çünkü kendisini güvende hissetmek ister.
+Kadın, gücü erkekten daha çok arar çünkü kendisini güvende hissetmek ister.***
 
 
