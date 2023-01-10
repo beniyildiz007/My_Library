@@ -167,11 +167,168 @@ Spor salonlarındaki eliptik aletlerde, bisiklet sürerek ya da ağırlık çal�
 Bunun yanında, ikili, iyi bir uyku uyumanın da sağlık açısından önemini vurguluyor ve uykunuzu ihmal etmemenizi öneriyor.
 
 # Beş Değer Arasında En Önemlisi İlişkilerdir
+Joshua ve Ryan'a göre, bu beş değer arasında en önemlisi ilişkilerdir.
+Neden mi?
+Bir piyango kazandığınızı ve hayatınızdaki tüm isteklerinize ulaştığınızı hayal edin.
+Sonrasında da, çevrenizdeki herkesin sizi terk ettiğini düşünün.
+Ne olurdu?
+Hiçbir şeyden keyif alamamaya başlardınız değil mi?
+
+Joshua ve Ryan'a göre, iyi ilişkileriniz olmadan anlamlı bir yaşam kurmanız mümkün değildir.
+Hepimiz sevilmek isteriz.
+Hepimiz sevmek isteriz.
+Ve hepimiz tecrübelerimizi başkalarıyla paylaşma ihtiyacı duyarız.
+Bazılarımız çok sayıda insanlar görüşüp bir şeyler paylaşmak ister; bazılarımız ise seçilmiş, az sayıdaki insanla iletişim kurmayı tercih ederiz.
+Bu tamamen kişisel tercihlerdir ve hiçbiri doğru ya da yanlış değildir.
+Önemli olan anlamlı ilişkiler kurmaktır.
+Joshua ve Ryan'a göre, anlamlı ilişkiler kurmanın üç yolu şu şekildedir:
+- Harika yeni ilişkiler bulun
+- Var olan ilişkilerinizi dönüştürün
+- Değişin
+
+Var olan ilişkilerinizi değerlendirmek için, Joshua ve Ryan bir tablo yapmanızı öneriyor.
+Bir yablo yapın ve hayatınızda ilişki içinde olduğunuz herkesi bu tabloya yazın.
+Sonrasında da başka bir sütun açın ve bu kişileri birincil, ikincil ve uzak çevre olarak değerlendirin.
+Son olarak da başka bir sütun açın ve bu insanların hayatınızda oluşturduğu etkiyi olumlu, olumsuz ve nötr olarak derecelendirin.
+
+Olumlu ilişkiler sizi mutlu edecek ve gelişmenize yardımcı olacaktır.
+Olumsuz ilişkiler sizi mutsuz edecek ve başarısız hissettirecektir.
+Nötr ilişkiler ise, olumlu ve olumsuz arasında kalan ilişkilerdir.
+Genelde insanlar, zamanının çoğunu uzak ilişkiler kategorisindeki ilişkilerle geçirirler.
+Joshua ve Ryan öncelikle, tablodaki uzak ilişkiler kategorisinde yer alan insanları incelemenizi ve içlerinden ilk iki kategoriye geçirmek istediğiniz kişiler olup olmadığını tespit etmenizi öneriyorlar.
+
+Sonrasında da, ilk iki kategoriye geçirmek istediğiniz kişilerle ilişkinizi güçlendirmek için neler yapabileceğinizi düşünmelisiniz.
+Diğer kişilerle ise, ilişkilerinize bir set çekmek en mantıklısı olacaktır.
+
+Birincil ilşkileriniz hayatınızda yer alan en önemli kişilerdir.
+Bunlar sizin çekirdek kadronuzu oluşturur.
+Joshua ve Ryan'a göre, zamanınızın çoğunu bu kategorideki insanlara ayırmalı ve onlarla ilişkilerinizi güçlendirmeye çalışmalısınız.
+Karşınızdaki kişiyi değiştirmeye çalışmamalı, kendiniz değişmeye başlamalısınız.
+Böylece, size gerçekten değer veren kişiler de sizi görüp değişmeye başlayacaktır.
+Joshua ve Ryan'a göre, harika ilişkide olması gereken sekiz öğe ise şu şekildedir: "Sevgi, güven, dürüstlük, önem vermek, destek olmak, ilgi göstermek, sahicilik ve anlamak".
+Bu sekiz öğeye odaklanmalı ve özellikle birincil ilişkilerinizi beslemenin yollarını aramalısınız.
 
 # Beş Değer Arasında En Önemlisi Tutkulardır
+Joshua ve Ryan'a göre, bu beş değer arasında en önemlisi tutkulardır.
+Neden mi?
+Bir piyango kazandığınızı ve hayatınızdaki tüm isteklerinize ulaştığınızı hayal edin.
+Sonrasında da, sabahları uyandığınızda yapacak, sizi heyecanlandıracak hiçbirş ey kalmadığını düşünün.
+Ne olurdu?
+İçinizde büyük bir boşluk hissi olurdu değil mi?
+
+Joshua ve Ryan'a göre, kariyerler tehlikelidir.
+Çünkü insanlar kendilerine öyle çok önem verirler ki; işlerindeki kimliğe göre bir sosyal statü oluştururlar.
+Size birisi "ne işle meşgulsün?" diye sorduğunda ona mesleğinizden değil hobilerinizden, tutkularınızdan bahsedin.
+Bu tür cevaplar size kariyerinizden çok daha fazlası olduğunuzu hatırlatırken, o kişinin de sorusunu gözden geçirmesine neden olabilir.
+
+Joshua ve Ryan ticari bir kuruluşta çalışmanın kötü olduğunu iddia etmiyor.
+Gerçek tutkunuzun ne olduğunu keşfetmeniz gerektiğine inanıyor.
+Nadiren de olsa, bu şu anda çalıştığınız iş de olabilir.
+Joshua ve Ryan'a göre, tutkularınızın peşinden gitmenize engel olan dört zincir şunlardir: "kimlik, statü, güvence ve para".
+
+Bunları biraz daha açmak gerekirse; tutkularınızı bulmak için öncelikle kimliklerinizden kurtulmalısınız.
+Siz kimsiniz? sorusunun üstüne kafa yorduğunuzda, cevabınız öğretmen, muhasebeci veya bankacı ise yanlış yoldasınız.
+Mesleğinizi kimliğiniz kabul ettiğiniz sürece, başka bir şey yapabilmeniz çok zordur.
+Kendinizi tanımlarken, mesleğiniz ile değil, kişiliğinizi anlatan daha anlamlı etiketlerle tanımlayın.
+
+Statü zincirinden kurtulun!
+Joshua ve Ryan'a göre, bunun en iyi yolu, seslerini kısmaktır.
+İnsanların işinizle ilgili ne düşündüğünü daha az önemseyin ve kariyerlerinizden ibaret olmayan, esas olarak yaptıklarınızdan oluşan kimliklerinize neden daha fazla önem vermeleri gerektiklerini onlara gösterin.
+
+Güvende olma zincirinden de kurtulun!
+Herkes güvende olmak ister.
+Bunun için de para gereklidir.
+Fakat tutkunuz olan işleri yaparak da para kazanabilirsiniz.
+Belki eskiye göre daha az olacaktır; ama kendinizi mutlu hissedeceksiniz.
+Bu alanda da Joshua ve Ryan'ın önerisi, tutkunuz olan işten para kazanan üç kişi bulmanız ve onları tüm hatlarıyla örnek almanızdır.
+
+Paraya daha az önem verin!
+Para aileleri parçalar, evliliklere zarar verir ve insanları ideallerinin peşinde gitmekten alıkoyar.
+Paranın kontrolünü elinize geçirin.
+Bu konuda da Joshua ve Ryan sizlere, beş önlem sunuyor:
+- Bütçe oluşturun ve harcama kalemlerini belirleyin.
+- Geleceğinize yatırım yapın.
+- Borçlarınızdan arının.
+- Küçülün ve sadeleşin.
+- Başka canlılara katkıda bulunun.
+
+```c#
+/*
+Ben bu konu için büyük oranda yazılanlara katılıyorum. Ve bu işin etkenlerinin cinsiyet ve coğrafi olarak da ayrıldığını düşünüyorum.
+Cinsiyet olarak ayrılır çünkü bir erkeğin tutkularının peşinden gitmesi ile kadının gitmesi, önlerine farklı engeller çıkmasına sebep olacaktır.
+Erkekler bu konuda daha çok destek bulurken kadınlar daha çok zorlanırlar.
+Ayrıca biz erkekler zorlukların üzerine gitmek konusunda biyolojik ve hormonel olarak daha cesaretliyken kadınlar yapıları gereği daha güvenli yolu tercih etme eğilimindedirler.
+Coğrafi olarak da bu konudaki farklar özellikle Türkiye'de çok görülmektedir.
+Özellikle nüfusunun %60'ının asgari ücret kazandığı bir ülkede, sevdiği işi yapmak ve bunun peşinden gitmek hayale yakın bir unsur oldu ne yazık ki.
+'Peki o zaman üniversite seçerken ona göre seçsinler' diye düşünebiliriz fakat bu konuda da insanların akıl danışmanları olan ailelerin ne yazık ki pek de bilinçli olmadığını ve puanına uygun en yüksek yer neresiyse oraya gitmesinin daha doğru olacağını düşünüyorlar.
+Demem o ki; para da güvenlik de bu ülkede son derece düşünülmesi ve önemsenmesi gereken konulardır.
+Asıl mesele bu parayı nasıl kullandığımız.
+Bu nokta da 'Geleceğinize yatırım yapın' maddesine sonuna kadar katılıyorum.
+Kendini yarat.
+*/
+```
 
 # Beş Değer Arasında En Önemlisi Gelişimdir
+Joshua ve Ryan'a göre, bu beş değer arasında en önemlisi gelişimdir.
+Neden mi?
+Bir piyango kazandığınızı ve hayatınızdaki tüm isteklerinize ulaştığınızı hayal edin.
+Sonrasında da, her sabah kalkıp balık tutmaya gittiğinizi ve tüm gün bunu yaptığınızı düşünün.
+Bu mantıklı olur muydu?
+
+Joshua ve Ryan'a göre, eğer gelişmiyorsanız ölüyorsunuz demektir ve eğer ölüyorsanız da, tanım gereği anlamlı bir yaşam sürmüyorsunuzdur. (Sonuna kadar katılıyorum).
+Bu yüzden, her gün gelişmeye ve ilerlemeye devam etmelisiniz.
+Hayatınızdaki değişimleri genellikle bebek adımlarıyla yapmalısınız.
+Örneğin; bir spor salonuna gidip bir haftada yapacağınız egzersizi bir günde yaparak ve sonraki günlerde yatarak formda kalmayı bekleyemezsiniz.
+Hayatınızda her gün, artan yoğunlukta, değişikliklere yoğunlaşın.
+Bu değişiklikleri yaparken günlük hayatınız kayda değer ölçülerde değişmez.
+Fakat bir süre sonra, geriye dönüp baktığınızda büyük bir değişim fark edersiniz.
+Bu konuda belki de en önemli davranış ise harekete geçmektir.
+Joshua ve Ryan'a göre, bir karar verdiğinizde, yeterli güdüye de sahip olduğunuzu düşünüyorsanız hemen harekete geçmelisiniz.
+Bu, egzersiz yapmaya karar verdiyseniz bir anda 15 kilometre koşmaya başlamak demek değildir.
+Bu yönde atacağınız bir adım bile oldukça önemlidir.
+Ve eylemlerinizi sürekli kılın.
+Sevgilinize bugün ve yarın iyi davranmak, ilişkiniz için, bugün bağırıp yarın çiçek almaktan çok daha faydalıdır.
+(Yani "insanlara karşı jöle gibi değişme, statik ol" demek istiyorlar.)
 
 # Beş Değer Arasında En Önemlisi Katkıdır
+Joshua ve Ryan'a göre, bu beş değer arasında en önemlisi katkıdır.
+Neden mi?
+Bir piyango kazandığınızı ve hayatınızdaki tüm isteklerinize ulaştığınızı hayal edin.
+Sonrasında da, paranızın üstüne oturup sadece servetinizin ve şanınızın keyfini çıkardığınızı ve başka hiçbir şey yapmadığınızı düşünün.
+Nasıl olurdu?
+
+Joshua ve Ryan'a göre, siz geliştikçe harika bir şey olmaya başlar; verecek çok daha fazla şeyiniz olur.
+Gelişmek insana kendini iyi hissettirir.
+Ama başkaalrına katkıda bulunmak, muhtemelen daha da iyi hissettirecektir.
+Yardım etmek insani bir içgüdüdür.
+İnsanlara yardım etmenin ve katkıda bulunmanın birçok yolu vardır.
+Örneğin yerel örgütler bunun için harika bir seçenektir.
+Bunun yanında, kendiniz bir oluşum başlatabilir ve başkalarına katkıda bulunmanın eşsiz mutluluğunu tadabilirsiniz.
+
+Yaptığınız olumlu şeyler iki türlüdür: "yapmaktan hoşlandığınız olumlu şeyler ve yapmaktan hoşlanmadığınızo lumlu şeyler".
+Joshua ve Ryan'a göre, yaptığınız olumlu şeylerin ikincisi olan yapmaktan hoşlanmadığınız olumlu şeyler, anlamlı yaşamanın anahtarıdır.
+Yani diğer bir deyişle, yapmaktan hoşlanmadığınız olumlu şeylerden keyif almanın yollarını bulmak, yaşamınızı kalıcı olarak değiştirmenin anahtarıdır.
+
+Başkalarına bir yardımda bulunmazsanız, hayatınız sadece kendinize dönük bir hayat olacaktır.
+Joshua ve Ryan'a göre, başkalarına bir şey katmayan, katkıda bulunmayan bir yaşam anlamsız bir yaşam demektir.
+(Yine katıldığım ve desteklediğim bir görüş)
 
 # Son Özet
+Özeti oluştururken, beş değerin hepsinin "en önemli" olarak sınıflandırıldığını fark etmişsinizdir.
+Joshua ve Ryan kitapta böyle bir yaklaşımda bulunduğundan dolayı, bu anlatımı mümkün olduğunca bozmak istemedim.
+Joshua ve Ryan'a göre, bu beş değer hepimizin hayatında belli dönemlerde daha önemli halel gelir ve bu değerlerin öncelikleri kişiden kişiye değişir.
+Genellikle insanlar, zamanla bu beş değerden ikisine daha fazla önem verme eğilimindedir.
+Fakat, bu beş değer arasında bir denge oturtmak anlamlı bir hayat için oldukça önemlidir.
+
+Toparlayacak olursak; minimalizm, hayatınızdaki fazlalıkları elemenin, esas olana odaklanmanın bir aracıdır.
+Daha anlamlı bir hayata ulaşmak için, Joshua ve Ryan'ın önerdiği beş değer olan sağlık, ilişkiler, tutkular, gelişim ve katkı alanlarında kendinizi geliştirmeye odaklanmalı ve hayatınızdaki fazlalıkları tespit edip onlardan kurtulmalısın.
+
+Russian Mafia Boss olarak da bilinen Grim Hustle'ın, hala gençken; aç ve tehlikeliyken bilmemizi istediği 7 şey:
+1. En büyük hatalar, çok fazla konuşmaktan gelir. Daha sessiz ol.
+2. Borçlanma, yoksa uzun süre kölesi olursun. 
+3. Özellikle 20'li yaşlarınızdaysanız, para kazanmak ilk önceliğiniz olmasın.
+4. İş hayatında, sokakta ve hapiste, iş birlikleri size yüzleşmekten daha fazla güç kazandıracaktır.
+5. Büyük işler yapmak istiyorsan, akıl hocası bul. Haftalarca değil, YILLARCA.
+6. Büyük fikirler başarıya ulaşmaz. Sadece başarı, başarıyı getirir. Bu yüzden küçük şeylerde başarılı olun ve bir sonraki büyük başarıyı inşa etmek için kullanın.
+7. Dünya küçüktür, her zaman insanları tekrar görürsünüz. Bu yüzden her lanet olası gün SAYGI gösterin.
+Bu kadar.
