@@ -175,6 +175,6 @@ Eğer bugün araştırmayıp sadece kulaktan dolma anlatılanlara inanmayı terc
 
 Bunun olmasını istemiyorsak açıkgözlü, meraklı, yetinmeyen ve millet bütünlüğü inancına sahip bireyler olmamız şart.
 Söz konusu nitelikleri sağlayabilirsek, Wikileaks belgelerinde yazılan iddiaları tersine döndürmeyi başarabilir, yıllarca görmezden gelinen doğalgaz ve nükleer santral gibi isteklerimizi kuvvetli bir şekilde masaya koyabiliriz.
-***Her şeyden önce de particilik işlerinden uzaklaşılması gerekiyor. Ocu ya da bucu farketmez, herhangi bir şeyci olmak zorunda değiliz. İlla bir şeyci olacaksak ilerlemeci olalım. Kişisel çıkarları için halkını tehlikeye atan, öngörü ve izan yoksunu canlıların farkına varalım. ***
+***Her şeyden önce de particilik işlerinden uzaklaşılması gerekiyor. Ocu ya da bucu farketmez, herhangi bir şeyci olmak zorunda değiliz. İlla bir şeyci olacaksak ilerlemeci olalım. Kişisel çıkarları için halkını tehlikeye atan, öngörü ve izan yoksunu canlıların farkına varalım.***
 Kendi gücümüzün farkına vardığımız zaman, dünyanın güçlü sayılan devletlerinden biri hâline gelmemizin mümkün olduğunu vurgulayan bu eser; devlet politikalarını, yönetimleri ve alınan kararları daha iyi bir şekilde analiz edebilmenizi sağlayacak.
 
