@@ -260,10 +260,11 @@ Erkekler bu konuda daha çok destek bulurken kadınlar daha çok zorlanırlar.
 Ayrıca biz erkekler zorlukların üzerine gitmek konusunda biyolojik ve hormonel olarak daha cesaretliyken kadınlar yapıları gereği daha güvenli yolu tercih etme eğilimindedirler.
 Coğrafi olarak da bu konudaki farklar özellikle Türkiye'de çok görülmektedir.
 Özellikle nüfusunun %60'ının asgari ücret kazandığı bir ülkede, sevdiği işi yapmak ve bunun peşinden gitmek hayale yakın bir unsur oldu ne yazık ki.
-'Peki o zaman üniversite seçerken ona göre seçsinler' diye düşünebiliriz fakat bu konuda da insanların akıl danışmanları olan ailelerin ne yazık ki pek de bilinçli olmadığını ve puanına uygun en yüksek yer neresiyse oraya gitmesinin daha doğru olacağını düşünüyorlar.
+'Peki o zaman üniversite seçerken ona göre seçsinler' diye düşünebiliriz fakat bu konuda da insanların akıl danışmanları olan ailelerin ne yazık ki pek de bilinçli
+olmadığını ve puanına uygun en yüksek yer neresiyse oraya gitmesinin daha doğru olacağını düşünüyorlar.
 Demem o ki; para da güvenlik de bu ülkede son derece düşünülmesi ve önemsenmesi gereken konulardır.
 Asıl mesele bu parayı nasıl kullandığımız.
-Bu nokta da 'Geleceğinize yatırım yapın' maddesine sonuna kadar katılıyorum.
+Bu noktada 'Geleceğinize yatırım yapın' maddesine sonuna kadar katılıyorum.
 Kendini yarat.
 */
 ```
