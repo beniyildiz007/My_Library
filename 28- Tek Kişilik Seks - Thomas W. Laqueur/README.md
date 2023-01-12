@@ -145,6 +145,7 @@ Ayrıca enerjisi de ciddi oranda düşer.***
 Bu enerjiyi de spor yaparak ve günlük işlerimize odaklanarak rahatça boşaltabiliriz.
 Düşünce gücümüzü geliştirir ve odaklanma katsayımızı arttırır.
 Kas gelişimini ciddi miktarda arttırır ve yağ yakımını hızlandırır.
+Hatta Mike Tyson Dünya Ağırsiklet Şampiyon Kemeri'ni kazandığı maçtan sonra basın açıklaması sırasında dedi ki "I haven't fucked my wife for 1 year". Bu çok ciddi bir fedakarlık.
 Karar alırken daha sağlam adımlar atmanızı ve analiz etmenizi sağlar.
 Salgıladığınız koku bile değişir.
 Yapılan araştırmalara göre nadir mastürbasyon yapan (ya da hiç yapmayan) erkeklere kadınların daha çok ilgi gösterdikleri görülmüştür.
