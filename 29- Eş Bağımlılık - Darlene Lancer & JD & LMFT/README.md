@@ -94,13 +94,78 @@ Yıllarca sürek stresli ilişkiler kişilerin bağışıklık ve sinir sistemin
 Ayrıca kronik yorgunluk, kalp rahatsızlıkları, obezite, kulak çınlaması, alerji ve yeme bozuklukları gibi daha birçok hastalığa da davetiye çıkarmaktadır.
 
 # Sizi Eş Bağımlı Yapan Nedir
+Aile sisteminin iç dinamiği, çocukların eş bağımlı bireylere dönüşüp dönüşmemesinde kilit rol oynar.
+Eş bağımlılığın en güçlü yordayıcısı eş bağımlı ebeveyne sahip olmaktır.
+Bebeklikte işlevsel olmayan bir ailede yetişen kişinin ortaya çıkan benliği, bu durumdan çeşitli derecelerde zarar görmektedir.
+Bütün bebekler bir bakımverene bağımlıdır.
+Bu bağımlılık öyle büyüktür ki bebek kendi vücudunun annesinden ayrışık olduğunu bile ilk birkaç ay fark edemez.
+Bu sebeple annenin her tepkisi ve tepkisizliği bebeği derinden etkiler.
+Büyümekte olan çocuğu psikolojik ihtiyaçlarının karşılanması, onun özgür bir benlik oluşturabilmesi için şarttır.
+Dördüncü ve altıncı aylar arasında bebek annesinden ayrışmayı öğrenir.
+Bu öğrenme sırasında kendi sınırlarını oluşturur.
+Kendine güvenen bir ebeveyn, çocuğu bu ayrılma çabasını ve girişimini korkmadan kabul eder.
+Ayrışma sürecinin olmazsa olmazı, annenin çocuğun duygularına ayna tutabilmesidir.
+Bunu da çocuğun gelişen duygularıyla uyumlu tepkiler vererek, empati ve içgüdü yeteneği ile yapmaktadır.
+Bu aşamada bakımverenin yetersiz düzeyde aynalama yapması, bakımveren kişinin tamamlanmamış benliğini yansıtır.
+Bu şekilde eş bağımlılık nesilden nesle aktarılır.
+Duygusal açıdan ihtiyaçları görülmeyen çocuk terk edilmiş hisseder.
+Bu his yüzünden duygularını bastırmayı ve olan duruma uyum sağlamayı öğrenirler.
 
 # Sağlıklı Aileler
+İşlevsel olan ailelerde de rekabet, anlaşmazlıklar ve hayal kırıklıkları vardır.
+Fakat bunu yönetme dinamikleri farklıdır.
+Bu ailelerin en ayırt edici yönü açık bir sisteme sahip olmalarıdır.
+Durum ne olursa olsun ifade özgürlüğü, bilgi akışı ve esneklik vardır.
+Kişiler çevrelerinde sahip oldukları diğer kişilikleri ailelerinden saklamazlar.
+Sözel istismar asla kabul edilemez.
+Kurallar çok katı veya çok tutarsız değildir.
+Esnek ve açıklaması olan kurallar vardır.
+Sağlıklı ailelerde bunların yanı sıra saygı, güven, kabul, bakım ve iyi niyet gibi ögeler bulunur.
+Çocuklar anne babaları tarafından koşulsuzca sevildiklerini bilirler ve onlara güvenirler.
+Eş bağımlı birey, ebeveynlerine güvenmeyi öğrenemediği için terk edilmiş hissettiren bir ortamda yetişir.
+Bu durumla başa çıkmak ve kendi kendine yetmek için kişi sürekli sahte bir kimliğin arkasına gizlenir.
+Ayrıca bu durumla başa çıkmak için kompulsif davranışlar sergilemesi de muhtemeldir.
 
 # İyileşmeye Giden Yol
+Eş bağımlılık örüntülerinize bir bakış atmak iyileşmenin ilk adımıdır.
+Gerçek değişim ise çocukluğunuzdan kalma altta yatan utanç ve acıların iyileşmesi ile olur.
+İşlevsiz bir ailede kişinin kendini bulması, anda yaşaması veya incinebilir olması güvenli değildir.
+Bu yüzden eş bağımlı birçok birey yaşından çok daha olgun biri gibi davranır.
+Çok erken yaşlarda sorumlu ve kontrol sahibi olmayı öğrenmiştir.
+Bu kişiler, içindeki çocuğun ihtiyaçlarına kendileri ebeveynlik yaparlarsa iyileşirler.
+Gerçek benlik, ancak içimizdeki çocuk kendini ifade ettiğinde kendini rahatça konumlandırabilir.
+Çok fazla çalışarak, güvenli sınırlardan kaçınarak, kendinizi çok zorlayarak ya da eleştirerek ihtiyaçlarınızı ve isteklerinizi bastırıyorsanız içinizdeki çocuk çok kaygılanacaktır.
+İyileşmek için onunla bağ kurup isteklerini dinlemelisiniz.
+İçinizdeki çocuğa; hareket, yaratıcı ifade, meditasyon ve baskın olmayan elle yazma yoluyla beyninizin duygusal ve sezgisel olan sağ lobu aracılığıyla ulaşabilirsiniz.
 
 # Yaraları İyileştirmek
+Birçok eş bağımlı birey kendini sevmekte zorlanır.
+Birçoğu başkalarına yardım ederken kendini göz ardı ettiği için çöker ve mutsuz hisseder.
+Kendinize bakmaya başladığınızda ise diğerlerine bakma konusunda daha net sınırlar çizmeniz mümkün olacaktır.
+Eş bağımlılık konusunda entelektüel bilgiye sahip olsanız bile iyileşmeniz için hissetmeniz gerekir.
+İşe bir yerden başlamak için ideal bir zaman yoktur.
+Eyleme geçmediğiniz her an eş bağımlılığınızı körüklersiniz.
+İşte bu yüzden profesyonel bir yardım almak akıllıca bir seçim olabilir.
+İdeal olan, size danışmanlık sunacak eğitimli bir uzman ile birebir çalışmanızdır.
+Bilişsel Davranışçı Terap, EMDR, EFT, Akılcı Duygusal Davranışçı Terap, Görselleştirme, Psikodinamik Psikoterapi, Duyarsızlaştırma, Somatik Deneyimleme veya 12 Adım programları da dahil olmak üzere destek grupları bu süreçte sizi iyileştirecek tekniklerden bazılarıdır
 
 # Hayata Devam Etmek ve İyileşmeyi Sürdürmek
-
-
+Eş bağımlılık sonrası iyileşme süreci; öz güven oluşturma, kendi kendini besleme, sınır koyma ve geçmişinizi iyileştirme gibi ögeleri içerir.
+İyileşme sürecine girdiyseniz artık hayallerinizi ve tutkularınızı gün yüzüne çıkarmaya; beceri ve yeteneklerinizi keşfetmeye hzırsınız demektir.
+Bu ancak kendi yaşamınızın yazarı olduğunuzda ve kendinizi yetkilendirip sorumluluk aldığınızda gerçekleşir.
+Birçok eş bağımlı birey başına gelenleri ve hisettiklerini dış faktörlere bağlar.
+Bu kişiler, değişimin kendi dışlarındaki bir şey veya kişiden geleceğini bekler ve umar.
+Bunu yapmayı bırakıp eylemlerin sorumluluğunu almaya başlayan kişi yavaş yavaş kontrolü geri kazanmaya başlar ve kontrol odağı içsel olur.
+İyileşmedeki bir diğer önemli nokta ise kendinizi onaylamaktır.
+Düşündüklerinize ve yeteneklerinize olumsuz yaklaştığınız her seferde olumsuz olanı onaylamış olursunuz.
+Olumlu onaylar ile desteklenen bir zihin ise beyni başarabileceği konusunda ikna etmeye başlar.
+Ayrıca birçok eş bağımlı birey yıllarca iç sesini susturduğu için hayallerini, tutkularını ve işini unutmuştur.
+İşte iyileşme süreci bu iç diyaloğun tamir edilmesi ile ilgilidir.
+Bunun için vücudunuzu ve zihninizi dinlemek çok önemli bir adımdır.
+Gelişmek demek ilerlemek, yeni şeyler öğrenmek ve risk almak demektir.
+Yapmak istediğiniz şeyleri durumu veya hayatınızla ilgili başka şeyleri düşünerek ertelemiş olabilirsiniz.
+Fakat siz yapana kadar hiçbir şey kendiliğinden olmaz.
+Hayatınızı ve geleceğinizi belirleyen tek şey bugün gerçekleştirdiğiniz eylemlerinizdir.(Ve gerçekleştirmediklerimiz).
+Esas önemli olan şu saat ve şu dakikadır.
+Ayrıca ilerledikçe hızlanır ve yolculuğun tadını çıkarırsınız.
+Sonuç olarak, eş bağımlılık zor bir süreç olsa da zamanla yaraları sarmak ve işlevsel hale gelmek mümkündür.
