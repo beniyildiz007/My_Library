@@ -39,7 +39,7 @@ Bu da açlıkla savaşan toplumların nüfusunun artmasına, karınlarını hep 
 
 Peki bu durum neden kaynaklanır?
 
-# Şöyle ki insan, yok olması her zaman mümkün olan ve devamlı olarak da doğal afetler, hastalıklar ve savaşlarla mücadele etmesi gereken bir canlıdır.
+Şöyle ki insan, yok olması her zaman mümkün olan ve devamlı olarak da doğal afetler, hastalıklar ve savaşlarla mücadele etmesi gereken bir canlıdır.
 Tüm bunlar tarafından yaşamı kolayca tehlikeye girebilen insan, kendi savunma mekanizmalarını yaratmıştır.
 "Yaşama Gücü Geni" de bunlardan bir tanesidir.
 
