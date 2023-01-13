@@ -215,7 +215,7 @@ Günde tek öğün beslenerek sağlıklı organlara ve sağlıklı bir cilde sah
 Günde tek öğün beslenme yönteminin son hedefi, ince bir bel ve pürüzsüz bir cilttir.
 (Bak her gün bir küçük kase yulaf ezmesi yiyorsun, 1 ay sonra cildin ayna gibi parlıyor. Denendi, onaylandı.)
 
-# Sizin için sağlıklı olmanın ne ifade ettiğini bulmaya çalışın.
+# Sizin İçin Sağlıklı Olmanın Ne İfade Ettiğini Bulmaya Çalışın
 Bu soruyu cevaplamanızla beraber bütün hayat alışkanlıklarınızı gözden geçirecek ve yaşam yolculuğunuzda sağlam adımlar atmaya başlayacaksınız.
 
 Sağlık daima kaybedildiği zaman değeri anlaşılan bir şeydir.
