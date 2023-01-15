@@ -133,7 +133,7 @@ Bunun üzerine arkadaşımın hem ücretini iade ettiler (ki indirimli sipariş 
 Bu durum, her ne kadar aksaklık meydana gelmiş olsa da müşteri memnuniyetini üst düzeye çıkardı ve Getir o akşam bizim güvenimizi kazandı.***
 
 ***Trendyol, çalışanları için öyle bir ofis binası yapmış ki, olur da çalışmaktan yorulan ya da o gün kendini halsiz hisseden bir personelimiz olursa diye uyku odası bile tasarlamışlar.
-Çalışanların her ihtiyacına koşuluyor, bizzar ilgileniyorlar ve ofis ortamları sanatsal renklerle adeta gökkuşağı gibi renklendirilmiş ve insanın içini ferahlatan, huzur veren renkler ağırlıklı olarak kullanılmış.
+Çalışanların her ihtiyacına koşuluyor, bizzat ilgileniyorlar ve ofis ortamları sanatsal renklerle adeta gökkuşağı gibi renklendirilmiş ve insanın içini ferahlatan, huzur veren renkler ağırlıklı olarak kullanılmış.
 Bu durum gerçek yöneticilerin farkını ortaya koyuyor.
 Ben, elimdeki hammaddeyi ne kadar kaliteli işlersem, bana geri dönütü de o kadar kaliteli olacaktır.
 Çıkarcılık ve sömürüden uzak, muasır medeniyet seviyesinde bir Türkiye Piyasası umuduyla...***
