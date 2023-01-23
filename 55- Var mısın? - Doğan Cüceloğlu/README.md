@@ -240,7 +240,7 @@ Doğan Cüceloğlu'nun yaşama, kendine, ilişkilerine, topluma, doğaya ve evre
 # Okurun Yorumu
 ***Doğan abim yine her zamanki gibi hayata karşı bizlerin bakış açısını zenginleştirmeye devam ediyor.
 Özellikle çocuk eğitimi konusunda kendisini takip etmenizi şiddetle tavsiye ediyorum.
-Bir çocuk bir nesin demektir.
+Bir çocuk bir nesil demektir.
 Para ve mutluluk konusuna da biraz gerçekçi yaklaşmak gerektiğini düşünüyorum.
 Evet para belki mutluluk getirmez fakat mutsuzlukları çok büyük oranda ortadan kaldırabilir.
 Bu da dolaylı yoldan aslında mutluluğa gitmemizin önünü açar.***
