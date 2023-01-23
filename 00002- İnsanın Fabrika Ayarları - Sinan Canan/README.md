@@ -142,37 +142,3 @@ Lifli, çiğ ve yeşil gıdaları tercih edip ruh durumumuzu ve zihinsel odağı
 Son olarak beslenmemizin sağlıklı bir yaşam getirmesini istiyorsak İFA'na uygun şekilde bedeni hoş sürprizlerle şaşırtmayı deneyebiliriz.
 Farklı gıdalar denemek; arada sırada vejetaryen veya vegan gibi besin tarzlarını benimsemek; rutini bozacağından bütünsel sağlığımıza olumlu etki yapması muhtemel uygulamalardır.
 
-# Son Özet
-Bu özetle birlikte insan olarak fabrika ayarlarımızın bir kısmına göz attık.
-Özellikle bedenimiz, zihnimiz, hareket kabiliyetimiz ve beslenme şekillerimizle ilgili temel ayarlarımıza değindik.
-Modern toplumda sıkça unutulan bu ayarlarımızın, bilimsel bilgiler ve kadim öğretiler ışığında tekrar gündeme gelmesinin farkındalığıyla birlikte kaliteli bir yaşamın kapılarını da aralamış olduk.
-Özette ilk olarak, belirsizlikten kaçmak için oluşturduğumuz düzenin aslında evrenin işleyişinden ne kadar uzak olduğundan bahsettik.
-Kaosu tanımlarken atalarımızın yaşamında da rutinlerin her zaman olumlu işlemediğini anlattık.
-Özetin ilerleyen bölümlerinde beynimizin hangi amaca yönelik evrimleştiğini aydınlatarak hareketin bizim için öneminden bahsettik.
-İnsanın ayarlarına en uygun hareket biçimini de açıkladıktan sonra yeme alışkanlıklarımıza değindik.
-Atalarımızdan bize kalan iyileştirici besin uygulamalarını inceledikten sonra bütüncül bir sağlık için uygulayabileceğimiz birkaç beslenme ipucunu vererek özetimizi sonlandırdık.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
