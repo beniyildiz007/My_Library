@@ -1,4 +1,3 @@
-# Giriş
 Evrim öncesinde yer yüzünde başka insan türleri de yaşamış sonra ölmüştü.
 İnsan türünün atalarından en önemlisi Homo Erectus yani Dik İnsan'dı.
 Böyle adlandırılmalarının nedeni de iki ayak üzerinde durmalarıydı.
