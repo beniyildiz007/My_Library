@@ -214,33 +214,3 @@ Böylelikle özgün katılım, özgün tarzlar ve özgün ihtiyaçlar başıboş
 
 
 > Bir yönetici olarak başarılı olmak, neredeyse tamamen, bunu yapabilme yeteneğine bağlıdır.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
