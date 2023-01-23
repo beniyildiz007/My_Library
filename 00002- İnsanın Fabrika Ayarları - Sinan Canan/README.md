@@ -1,4 +1,3 @@
-# Giriş
 Atalarımızın bu dünyadaki en büyük avantajlarından biri hareket kabiliyetleridir.
 Gelişmiş bedensel yetenekleri sayesinde dünya üzerinde rahatça yayılım sağlamışlardır.
 Uzun seçilim süreçleri sonucunda harekete uyumlanan insan, bu özelliğini günümüzde yeterince kullanmadığında da birçok hasar alabiliyor.
