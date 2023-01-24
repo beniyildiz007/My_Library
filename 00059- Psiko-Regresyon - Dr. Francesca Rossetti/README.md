@@ -108,10 +108,10 @@ Sürekli bir şeylerin eksik olduğunu düşünen veya kendini yolunu şaşırm�
 Budistlere göre bir kişinin ölüm şekli, onun diğer hayatta nasıl yaşayacağını belirler.
 Psiko-regresyon terapisi ile geçmişte farklı farklı sebeplerle biriken karmik enerji temizlenerek kişinin kendi cehenneminden kurtulması amaçlanır.
 
-(Titreşim konusuna kesinlikle katılıyorum ve bu konu gerek fiziksel gerekse meta-fizik alanında olsun çeşitli alanlarda üzerine teoriler üretilmiştir.
-Merak edenler için özellikle Nicola Tesla'nın frekans ve titreşim ile ilgili araştırmalarını inceleyebilir.
+(Titreşim konusuna kesinlikle katılıyorum ve bu konunun gerek fiziksel gerekse meta-fizik alanında olsun çeşitli alanlarda üzerine teoriler üretilmiştir.
+Merak edenler için özellikle Nikola Tesla'nın frekans ve titreşim ile ilgili araştırmalarını inceleyebilir.
 Hatta kendisinin şöyle çok güzel bir sözü vardır:
-> *"Evrenin gizemini anlamak istiyorsanız; enerji, frekans ve titreşim cinsinden düşünün." -Nicola Tesla*)
+> *"Evrenin gizemini anlamak istiyorsanız; enerji, frekans ve titreşim cinsinden düşünün." -Nikola Tesla*)
 
 # Cinsel Regresyon
 Günlük yaşantımızı etkileyen en temel olgulardan biri de cinsel yaşantımızdır.
