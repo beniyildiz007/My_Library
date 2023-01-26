@@ -161,5 +161,109 @@ Liberal siyasetçiler seçmenine güvenmekte, liberal sanatta güzellik görenin
 Liberal eğitimde, tüm cevapların insanların içinde olduğuna inanıldığından, insanlara düşünme aşılanmaktadır.
 
 # Yapay Zeka ve Algoritmaların İş Hayatına Girişi
+Din ve teknoloji, tarih boyunca ayrılmaz bir ikili gibi, sürekli birbirlerine yaklaşmıştır.
+Birbirlerini iterler, tutunurlar; ama asla uzak kalamazlar.
+Peki yapay zeka ileride birçok alanda insanın yerini alabilecek noktaya geldiğinde, işgücüne ne olacak?
+Amaçsız ve işe yaramaz olarak kalan devasa insan sınıfının, dünyaya etkileri nasıl olacak?
+Bu soruların yanıtları, Kuran'da İncil'de ya da Konfücyüs',n Seçmeleri'nde bulmak mümkün değildir.
+İnsanların, 21. yüzyılda en köklü değişimlerin nereden başlayabileceğini sorması gerekiyor.
+IŞİD'ten mi, yoksa Google'dan mı?
+Buna verilecek cevap, birçok şeyin özeti aslında.
+
+Son yıllarda, bilgisayar zekasında akıl almaz gelişmeler kaydedilse de, bilincinde hiçbir ilerleme gösterilememiştir.
+Şu anda kullandığınız bilgisayar, 1950'lerdeki prototiplerinden daha bilinçli değildir.
+Ancak insanlık, çok önemli bir devrimin eşiğine gelmiş duurmda.
+İnsanlar ekonomik değerlerini yitirmek üzere; çünkü zeka bilinçten ayrılmaya başladı.
+Şimdiye kadar yüksek zeka hep gelişmiş bir bilinçle anıldı.
+Fakat günümüzde, insanların yaptığı görevleri onlardan daha iyi yapan ve bir bilince sahip olmayan yapay zeka türleri geliştirilmeye balandı.
+Bu gelişmeler bize, yakın bir gelecekte bir ağın noktalarını birleştirme konusunda, bilinci olmayan algoritmaların insan bilincini aşabileceğini göstermektedir.
+Şu ana kadar, ikisi bir arada olduğundan zekanın mı, yoksa bilincin mi daha kıymetli olduğunu sorgulamak, önemsiz bir meşgale gibiydi.
+Fakat artık, zeka olmazsa olmaz hale gelirken, bilinç zorunlu olmayan bir tercih haline gelmektedir.
+
+Zamanla, bilgisayarların iş hayatında insanların yerine geçmesi kolaylaşmaya başladı.
+Bunun asıl nedeni ise uzmanlaşma problemidir.
+İnsanlar da son yıllarda uzmanlıklarını artırma eğilimindeler.
+Fakat insan özelliklerinin ve yeteneklerinin %99'u, iş hayatında lüzumsuz bir ayrıntıdan ibarettir.
+Yapay zekaların insanların yerini alabilmesi için, mesleki ihtiyaçlara yönelik yeteneklerinin insanlardan üstün duruma gelmesi yeterli olacaktır.
+
+2013'ün Eylül ayında, Oxford'da bulunan Carl Benedikt Frey ve Michael Osborne adındaki araştırmacıların yayınladığı "İstihdam Geleceği" adlı bir çalışma, gelecekteki yirmi yıl içinde mesleklerin durumunu inceliyordu.
+Frey ve Osborne'un geliştirdiği bu algoritma, ABD'deki mesleklerin %47'sinin yüksek riskli olduğunu hesapladı.
+Bu algoritmaya göre, 2033 yılında, tele-pazarlama ve sigortacıların %99'u, hakemlerin %98'i, kasiyerlerin %97'si, şeflerin %96'si, garsonların ve avukat asistanlarının %94'ü, tur rehberlerinin %91'i, fırıncıların ve otobüs sürücülerinin %89'u, inşaat işçilerinin %88'i, veterine yardımcılarının %86'sı, güvenlik görevlilerinin %84'ü, denizcilerin %83'ü, barmenlerin %77'si, arşivcilerin %76'sı, marangozların %72'si, cankurtaranların %67'si, işlerini bilgisayarlara kaptıracak.
+Bununla birlikte, diğer birçok meslek dalı da az ya da çok bu durumdan etkilenecek.
+
+Tüm bunların yanında, DNA testi pazarı ise gün geçtikçe büyümeye devam ediyor.
+Örneğin; Google'ın kurucusu olan Sergey Brin'in eski eşi Anne Wojcicki tarafından kurulan 23andMe şirketine 99 dolar ödediğiniz takdirde, karşılaşabileceğiniz tüm sağlık sorunları, kellik, körlük gibi genetik yatkınlıklara dair bir listeye sahip olabiliyorsunuz.
+Bunun için paketteki bir tüpün içine tükürüp firmaya geri göndermeniz yeterli.
+DNA testinin maliyeti gün geçtikçe düşecek gibi dursa da yeni ve daha pahalı prosedürlero rtaya çıkıyor.
+2016 verilerine göre, dünyadaki en zengin 52 insanın varlığı, en yoksul 3,6 milyar kişininkine tekabül ediyor.
+Yani bu da, bu 62 kişinin, toplam nüfusunun yarısının varlığına sahip olduğu anlamına geliyor.
+Tarihte, gelir seviyesi yüksek kişiler sosyal ve siyasi birçok avantaja sahipti.
+Fakat şu ana dek hiçbir dönemde, zenginleri fakirlerden ayıran biyolojik bir ayrım oluşmamıştı.
+Gelecekte, üst sınıfla toplumun geri kalan kesimi arasında, fiziksel ve bilişsel yetenekler arasında da büyük uçurumlar görebilliriz.
 
 # Geleceğin Dini Dataizm
+Artık geleceğin, tekno-dinlerin dönemi olacağı öngörülmektedir.
+Yüksek teknoloji guruları, tanrısız bu yeni dini Silikon Vadisi'nde mayalamaktalar.
+Üstelik bu yeni din ile, mutluluk, refah, barış, ebedi yaşam gibi vaatleri, İslamiyet, Hristiyanlık ya da diğer dinlerdeki gibi ölümden sonra değil, bu dünyada vaat ediyorlar.
+70.000 yıl önce yaşanan Bilişsel Devrim, Sapiens'in zihinsel yapısını değiştirerek, onu dünyanın hakimi haline getirmişti.
+İnsanların geninde değişiklik yaparak ateşlenebilecek ikinci bilişsel devrim ise, Homo Deus'a hayal etmesi bile zor olan yeni alemlerin kapısını açarken, insanları da galaksinin kralları haline dönüştürebilir.
+
+Tekno-hümanistler, gelecekte insnaların sürümünü değiştirebilir.
+Sistem, ayağına dolaşarak onu yavaşlatacak insanlardan kurtulmak için süürmleri düşük insanları tercih edebilir.
+Bilindiği üzere, sürüde sorun çıkaranlar genellikle en akıllı hayvanlardır.
+Bu nedenle, gelecekte çok hızlı şekilde veri aktarıp işleyebilen, rüya ve şüpheden sıyrılmış, dikkat sorunu olan insanlar üretilebilir.
+İnsanlar, milyonlarca yıldır gelişmiş şempanzelerdi.
+Gelecekte ise, büyük boy karıncalar olabilirler.
+
+İnsanların yükümlülüğü, veriyi damıtarak bilgiye, bilgiyi kavrayışa, kavrayışı da bilgeliğe dönüştürmekti.
+Fakat dataistler, insanın artık devasa veri akışıyla baş edemediğine hükmettiler ve veri işleme görevinin elektronik algoritmalara devredilmesi gerektiğine karar verdiler.
+Veri hızı ve hacmi arttıkça, siyasi partiler ve meclis gibi saygın kurumlar da veriyi yeterince hızlı işleyemediği için çağ dışı bir hale geliyor.
+Örneğin; ABD Ulusal Güvenlik Ajansı her sözünüzü takibe almış ve kaydetmiş oalbilir.
+Fakat; elindeki bu verilerle ne yapacağını ve nasıl işleyeceğini bilememektedir.
+Bu nedenle de; özellikle dış politikada çok yanlış kararlar verilmektedir.
+Önümüzdeki yıllarda teknoloji siyasetten rol çalıp, internet benzeri devrimler gerçekleştirilebilir.
+Yapay zeka ileride toplumları, ekonomileri, bedenleri ve zihinleri ele geçirebilir.
+
+İnsan türünün gerçekten tek bir bilişim sisteminden oluştuğu varsayılırsa, bunun son çıktısı ne olabilir?
+Dataistler, bunun Nesnelerin İnterneti adı verilen yeni ve etkili bir sistem olduğunu öne sürmektedir.
+Homo Sapiens'in sonu da, işte bu sistem tamamlandıktan sonra gelecektir.
+Dataizm, insan deneyimlerinin kutsal olmadığını iddia eder.
+İnsanlar Nesnelerin İnterneti'ni yaratma amacıyla kullanılan bir araçtan ibarettir.
+Bu kozmik bilişim sistemi, gelecekte bir Tanrı gibi her yerde olup her şeyi kontrol edecektir.
+İnsanlar daha iyi bir dünya yaratmak istiyorsa, bu sisteme dahil olup onunla kaynaşmak ve veriyi özgür kılmak zorundadır.
+
+Voltaire, zamanında "Tanrı, insanın hayal gücünün ürünüdür" demişti.
+Dataizm ise günümüzde buna şu şekilde karşılık veriyor: "Tanrı'nın, insanın hayal ürünü olduğu doğru. Ama insanın hayal gücü de biyokimyasal algoritmaların ürünüdür". 18. yüzyılda, hümanizm Tanrı merkezci dünya görüşünü, insan merkezci bir yaklaşımı, veri merkezci yaklaşıma dönüştürme yolunda ilerliyor.
+Dataizm'in yaklaşımı basit.
+Kim olduğunu öğrenmek istiyorsan diyor; dağ tepe dolaşmayı bırak ve DNA analizi yaptır.
+Hatta yalnız kendin gitme.
+Büyükanneni, dedeni, anneni, babanı ve kardeşlerini de yanında götür.
+
+Yapay Zeka ve biyoteknoloji, gelecekte dünyayı kesinlikle değiştirecek.
+Ama bunun nasıl olacağını kestirmek zor.
+Çünkü teknoloji deterministik değildir.
+Dünya eşi benzeri görülmemiş bir hızla değişmekte ve biz bir bilgi seli içerisinde neye odaklanacağımızı şaşırmış durumdayız.
+İnsanlar bu veri sağanağı ile baş edemeyecek duruma geldiğinde, otoriteyi serbest piyasaya, kitlelerin ortak aklına ve algoritmalara bıraktı.
+Eski zamanlarda güç sahibi olmak, veriye ulaşmak anlamına gelmekteydi.
+Günümüzde ise güç, neyi eleyeceğini bilmek demek.
+Peki dikkatimizi neye odaklayacağız?
+
+Kısa vadede, muhtemelen Ortadoğu karmaşası, Çin ekonomisi, mülteciler gibi sorunlara öncelik vereceğiz.
+Uzun vadede ise, küresel ısınma, eşitsizlik ve işgücü piyasasının parçalanması önceliklerimiz olacak.
+Nihayetinde, yaşama geniş bir pencereden  bakmayı başarabilirsek, tüm sorunlar ve gelişmeler, şu üç sürecin yanında gereksiz kalacak:
+
+1. Bilim her geçen gün, organizmaların algoritmalar ve yaşam veri işleme süreci olduğuna dair, herkesi ikna etmeye biraz daha yaklaşıyor.
+2. Zeka ile bilinç ayrılma noktasına gelmiş durumda.
+3. Bilinci olmayan yüksek zekalı algoritmalar, çok yakında bizi kendimizden daha iyi tanıyacak.
+
+# Okurun Yorumu
+***Özellikle bu adamın kitabını büyük bir istekle okumuştum.
+Çünkü çok çarpıcı ve egzotik iddiaları vardı.
+Hemen hemen söylediği bütün iddialara da katılıyorum.
+Evet ahir zamanda yaşıyoruz, evet dünya teknofuar alanına dönmeye başladı, evet tranzhümanizm çok yakındır, evet yapay zeka (zeka anlamında) bizden çok üstün olabilecek potansiyele sahip...
+Ve bunların hiçbiri, biz insanoğluna cenneti getiremez.
+Yapay bile olsa, insan bilmediğini kopyalayamaz, simüle edemez.
+Muhakkak ki herkesin bir planı var, ve son söz yukarıdan gelecek.***
+
+***Bu tür kitapları çok seviyorum ve çok yakından, büyük bir ilgiyle takip ediyorum.
+Çünkü: düşmanımı dostumdan daha yakın tutmak ve onu analiz edebilmek için çok iyi tanımak zorundayım.***
