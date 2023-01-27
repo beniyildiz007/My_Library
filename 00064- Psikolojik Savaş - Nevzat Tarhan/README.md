@@ -182,7 +182,7 @@ Mutlu olmanızın tek nedeni mutlu olmayı seçmenizdir.
 Acı da mutluluk da bir seçimdir.
 Etrafınızı sevgiyle donatarak bireysel cennet rüyanızda yaşayabilirsiniz.
 
-*(*)Binlerce farklı ses zihinde aynı anda konuşmaya çalışarak zihinde müthiş bir kaos yaratır. Tolteklere göre bu virüse mitote denir.*
+(*)Binlerce farklı ses zihinde aynı anda konuşmaya çalışarak zihinde müthiş bir kaos yaratır. Tolteklere göre bu virüse mitote denir.
 
 # Okurun Yorumu
 
