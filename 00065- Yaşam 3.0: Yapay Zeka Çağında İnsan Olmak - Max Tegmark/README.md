@@ -173,7 +173,7 @@ Diğer bir deyişle, bugün insanlık etik bir fikir birliğinin yakınında bil
 
 # Okurun Yorumu
 ***Denilenlere bir bakalım:
-insnaoğlu eğer Yaşam 2.0 ise ve Yaşam 3.0'ı oluşturmayı amaçlıyor ise, Yaşam 3.0 da Yaşam 4.0'ı mı yaratmayı amaçlayacak?
+insanoğlu eğer Yaşam 2.0 ise ve Yaşam 3.0'ı oluşturmayı amaçlıyor ise, Yaşam 3.0 da Yaşam 4.0'ı mı yaratmayı amaçlayacak?
 Ne olacak peki o zaman?
 Artık robotların ve yapay zekaların tamamen kendilerini ürettikleri ve bütün güce sahip oldukları bir Yaşam 4.0 mı hayal edeceğiz?
 İnsan hiçbir şey bilmese bile haddini bilmeli.
