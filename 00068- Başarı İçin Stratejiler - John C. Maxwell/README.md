@@ -127,4 +127,4 @@ Gerçek alfa, kendsiinden daha iyi bir alfa olduğu zaman gücü ona devretmeyi 
 6. Büyük fikirler başarıya ulaşmaz. Sadece başarı, başarıyı getirir. Bu yüzden küçük şeylerde başarılı olun ve bir sonraki büyük başarıyı inşa etmek için kullanın.
 7. Dünya küçüktür, her zaman insanları tekrar görürsünüz. Bu yüzden her lanet olası gün SAYGI gösterin.
 
-Bu kadar.
+***Bu kadar.***
