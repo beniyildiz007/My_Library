@@ -234,7 +234,7 @@ Yapman gerekiyorsa, yap.
 Yürümen gerekiyorsa, yürü.
 Erken kalkman gerekiyorsa, erken kalk.
 Mutlu olmak zorunda değiliz.
-Yapmak zorundayız.
+Yapmak zorundayız.***
 
 > ***"Büyük fikirler büyük başarılar getirmez, küçük başarılar büyük başarılar inşa eder."***
 
