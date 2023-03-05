@@ -200,6 +200,6 @@ Başkalarının da kendisine sormasını sağlayın.
 Yapılan maddi yardımları bir kenara koymak gerekirse asıl değeri büyük olan yardım manevi olandır.
 Herkes kapılarını açtı, sıcak çorba dağıttı, eksikler tedarik edildi, psikolojik destek verildi, kısacası herkes az-çok demeden elinden geleni yaptı.
 Tabii ki içimizde bunu fırsata çevirenler de vardı fakat küçük parazitler yüzünden resmin tamamını karalayamayız.
-Bir kez daha milletimle gurur duydum.
+Bir kez daha milletimle gurur duydum.***
 
 ***İyi ki varsınız.***
