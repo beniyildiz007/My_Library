@@ -118,7 +118,7 @@ Yalnızca bildiklerimi tekrar ettim.
 Yine de ilk kez okuyacak ve bu konuda kendisini geliştirecek arkadaşlara başarılar dilerim.
 Herkese bol şans.***
 
-> *Yetenek iyidir fakat çok çalışma yeteneği yener.* **-Kevin Durant**
+> *Yetenek iyidir fakat çok çalışmak yeteneği yener.* **-Kevin Durant**
 
 
 
