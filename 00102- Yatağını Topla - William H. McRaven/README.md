@@ -50,6 +50,9 @@ Hadi!
 Şimdi, kendinize çeki düzen verin ve olan bitene direnmeyi bırakarak yolunuzu buna göre belirleyin.
 
 # Başarısızlıklarınızdan Ders Çıkarın ve Risk Almaktan Korkmayın
+
+Deniz komandosunun rütbelileri arasına katılmak için üstesinden gelmeniz gereken sayısız korku vardır. Bir gece ben ve badimin karanlıkta dört mil yüzmemiz gerekti, tek başına bu bile sinirleri yıpratmaya yeter. Fakat o gece, çekiç kafalı köpekbalıkları, leopar köpekbalıkları ve hatta en çok korkulan ve en saldırgan olan büyük beyaz köpekbalıkları ile yüzeceğimize dair raporlar geliyordu. Köpekbalığı korkumun, deniz komandosu eğitimini tamamlama hedefinden onu alıkoymasına izin veremezdim ve bu yüzden hedefimi, cesaretimi arttırmak ve yola devam etmek için kullandım. Cesaret, trajediyle ya da hayatının en ümitsiz anlarıyla karşı karşıya kalınca devam etmek için gerekli olan şeydir. Böyle zamanlarda en iyi halimizi ortaya koymamız gerekir. **Çünkü karanlık zamanlar güçlü insanlar doğurur, güçlü insanlar aydınlık gelecekler yaratır.**
+
 Kimse "başarısızlık" kelimesini duymak istemez.
 Herkesin uzak durmaya çalıştığı şey olan olumsuzlukla doludur.
 Fakat doğru bakış açısı ile bir avantaja dönüştürülebilir.
