@@ -210,7 +210,7 @@ Evet ilişki dinamikleri bilinmeli lâkin peşinde koşulmamalı.
 Ayrıca hiçbir erkek de olduğu gibi sevilmez, yaptıkları için sevilir.
 Kadınlar olduğu gibi sevilir.
 Yol üzerinde karşıdan karşıya yaya olarak geçerken bile arabalar, eğer yanımda kadın ya da köpek varsa daha çok yol veriyorlar.
-Eşitlik diye bir şey yok ve hiçbir zamanda olmadı, olmayacak.***
+Eşitlik diye bir şey yok ve hiçbir zaman da olmadı, olmayacak.***
 
 ***Biz erkekler yaratmakla mükellefiz.
 İçimizdeki yanan alev ve enerji buraya akıtılmalıdır.
