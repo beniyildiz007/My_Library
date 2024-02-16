@@ -108,35 +108,126 @@ Bu cümleye tepki vermenin potansiyel dört farklı yoluna bir bakalım:
 - Son olarak, en ideali de bu, karşındakinin duygularını ve ihtiyaçlarını gözlemleyebilirsin. Şunu sorabilirsin: "yaptığım belirli bir davranıştan dolayı mı bencil olduğumu düşünüyorsun? İhtiyaçlarını nasıl daha fazla göz önünde tutabilirim?".
 
 # Duyguların Altında Yatan İhtiyaçları Tanımlamayı Öğrenin 
+Tepkilerimizi ve duygularımızı daha iyi anladığımıza göre, artık başka bir zor konuya bakalım: ihtiyaçlarınızı tanımlama.
+Bunun bu kadar zor olmasının sebebi ise basitçe insanların bunun üzerine fazla alıştırma yapmamasıdır; onun yerine, birbirini suçlama oyununa takılıp kalmaktadırlar.
 
+Birbirini suçlama oyunu klasik bir kısır döngüdür çünkü genellikle ihtiyaçlarımızı aktarmaz ve sonra da onları karşılamadıkları için diğerlerini suçlarız.
+Tandıklarımızı dağınık oldukları için azarlayabiliriz çünkü bizim düzen standartlarımızı karşılamazlar.
+Mutfağın düzenli olması ihtiyacımızı konuşmadan, yıkanmamış bulaşıkları mutfakta bıraktıklarında yapabileceğimiz gibi.
+Onları suçladığımızda, muhtemelen suçlu hissedeceklerdir ve hızlıca savunmaya çekilebileceklerdir.
 
+Bu meseleyi çözmenin bir yolu vardır ve yapabildiğimiz kadar doğrudan bir şekilde kendi ihtiyaçlarımızı aktarmakla başlar.
+Maalesef, duygularımızı aktarmayı zor ve hatta korkutucu buluruz.
+Özellikle kadınlar diğerleriyle ilgilenmek için kendi ihtiyaçlarını genelde göz ardı ederler çünkü öyle yapmak için yetiştirilmişlerdir.
 
+Buna rağmen hepimiz daha doğrudan olmayı öğrenebiliriz.
+Başkaları tarafından anlaşılmak ve ihtiyaçlarınızı yürekten dikkate almalarını istiyorsanız, basitçe kendinizi daha doğrudan ifade etmeniz gerekir.
+Hatta ihtiyaçlarınız hakkında ne kadar doğrudan olursanız, diğer insanların ihtiyaçlarını şefkatli bir yolla karşılamaları o kadar kolay olur.
 
+Dolayısıyla, partnerin arkasında yıkanmamış bulaşık bırakırsa, bunun seni nasıl hissettirdiğini söyle ve ikiniz için de makul bir çözüm öner: "yoğun bir çalışma günnden sonra kirli bulaşıkları yıkamak zorunda olmak beni geriyor. Ben dönmeden temizlendiklerinden emin olabilir misin? Ya da bir takvim oluşturabilir ve sorumlulukları paylaşabiliriz?".
 
+İhtiyaçlarınızı doğrudan ifade etmezseniz, uzun vadede kendiniz için bolca gereksiz sıkıntıya sebep olursunuz.
+Mümkün olduğunca çabuk bir biçimde kendi ihtiyaçlarınıza önem vermeniz önemlidir.
 
+# Sizin İhtiyaçlarınızı Karşılamalarına Yardım Etmek İçin Diğerlerinden Ne İstediğinizi Açıkça İfade Edin
+Şimdiye kadar, şiddetsiz iletişimin üç öğesini gördük: gözlemler, duygular ve ihtiyaçlar.
+Hadi şiddetsiz iletişimin son aşamasına geçelim: *ricalar*.
+Diğerlerinin şefkatle cevap vermelerine yardımcı olacak bir şekilde ricalarımızı nasıl ifade edebiliriz?
 
+Rica gerçekten ne istediğinizi açıkça ifade edilerek yapılmalıdır.
+Diğerlerinden ne istediğimiz hakkında ne kadar açık olursak, karşılığını alma şansımız o kadar muhtemeldir.
 
+Bu da ricalarımızı olumlu dille açık ve kesin ifade etmemiz anlamına gelir.
+Olumlu dil birinden bir şey yapmasını istediğini anlatır, bunun tersine olumsuz dil birinin bir şeyi yapmayı durdurmasını istediğini anlatır.
+Olumsuz dil bazı zamanlar belirsiz olabilir ve kafa karışıklığına ya da yanlış anlamalara yol açabilir.
+Örneğin, karısının her zaman işten eve geç gelmesine sinirlenen bir adam ona "işte çok zaman harcıyorsun!" dedi.
+Karısı bu olumsuz dilden çok fazla çalıştığını anladı; sonraki hafta, bir kano gezisine kendini yazdırdı.
 
+Fakat kocanın istediği şey bu değildi, adam, karısının eve gelmesini ve onunla zaman geçirmesini istemişti, işte daha az zaman geçirmesini değil.
+Şu daha güzel bir rica olabilirdi:" haftada en azından bir akşamı benimle ve çocuklarla geçirmeni isterim".
 
+Ricaları somut eylemlerde ifade etmek de önemlidir böylece diğerleri ne yapmaları gerektiğini bilebilir.
+İşçilerinden geri dönütler isteyen ama seslerini çıkarmaktan korktuklarını bilen bir patron hayal edin.
+"Benimle duygularınızı paylaşırken çekinmemenizi istiyorum" diyebilir.
+Bu örnekte, istedikleri şeyi söylemeleri için "çekinmemelerini" işçilerine iletiyor.
+Fakat, çekinmemeleri için hangi belirli eylemi hayata geçireceklerini söylemiyor.
+Bunu yapmalarına yardımcı olmak için, olumlu eylem dilinin ilkelerini kullanarak bir ricada bulunabilir: "düşüncelerinizi benimle çekinmeden paylaşmanızı kolaylaştırmak için ne yapabileceğimi bana söylemenizi istiyorum".
 
+# Yargılayıcı İç Konuşmayı Azaltmak için Şiddetsiz iletişim'i Kullanın
+Gördüğümüz gibi, şiddetsiz iletişim diğerleriyle ilişkilerimizi geliştirmek için mükemmel bir araçtır; ama daha da ileriye gidecek güce sahiptir, kendinizle ilişkinizi geliştirmeye yardımcı olmak.
+Kendinizle ilişkinizi daha iyi yapmanın ilk adımı, kendinize karşı şefkatli olmadığınız zamanları fark etmektir ve bu alışkanlığın temel göstergesi ise yargılayıcı iç konuşmadır.
+Bu en ufak hatamızda bile bizi eleştiren kafamızın içindeki sestir.
+Pek çok sefer kendinizi kendinize "ne kadar aptalım!", "bunu yine yaptığıma inanamıyorum!" derken bulmuşsunuzdur.
 
+Artık, kendinizden nefret eden içsel diyalogda takılıp kalmak yerine, kişisel yargılamanızı teşvik eden ihtiyaçlarınızı daha iyi anlamaya ve tanımlamaya çalışın.
+Gerçek şu ki kişisel yargılamalar bütün diğer yargılamalar gibi, karşılanmamış ihtiyaçların ifade edilmesidir.
+Dolayısıyla, onu dinlemeyi bırakmalısınız ve dikkatinizi karşılanmamış ihtiyaçlarınıza yöneltmelisiniz.
 
+Örneğin, bir ders anlatmak üzere olduğunuzu hayal edin; tam dersten önce, derse başlamadan bitirmek için acele ettiğiniz çilekli yoğurdu üzerinize döktünüz.
+Kafanızda o sesi çoktan duymaya başlamış olabilirsiniz: "tekrar nasıl işi berabt edebildim?".
+Bu olumsuzluğu dinlemek yerine, duurn ve kendinize "bu kişisel yargılama ile hangi karşılanmamış ihtiyacımı ifade ediyorum?" diye bir sorun.
 
+Bulmanız biraz zaman alabilir fakat eninde sonunda, mükemmel bir ders anlatarak diğerlerine hizmet etmek istediğiniz için kendinizin ihtiyaçlarını gözden kaçırdığınızı fark edebilirsiniz.
+Kendinize yemek yemek için zaman vermediniz ve bu yüzden çabuk bir çözüm olarak bir kâse yoğurt seçtiniz ve sonra onu döktünüz.
+Artık bu kişisel yargılamayı, "sorun değil, bir sonraki sefere kendi ihtiyaçlarına daha fazla önem verirsin" gibi şefkatli bir ifadeyle değiştirebilirsiniz.
 
+Karşılanmamış ihtiyaçlarınızda tam olarak nasıl bağlantı kuracağınızı öğrendiyseniz, mükemmel olmadığınız gerçeğiyle "kederlenmek" için fırsatınız oldu demektir.
+İdeal benlik algınızı asla tamamlayamadığınız için pişmanlık duyabilmenize rağmen, en azından artık bunun için kendinden nefret etmeyeceksin.
 
+# Empati Kurarak Dinlediğinizde, İnsanların Hislerini, İhtiyaçlarını ve Ricalarını İşiteceksiniz
+Şimdiye kadar, şiddetsiz iletişimin kendimizi doğru ifade etmek için önemli olan dört unsuruna odaklandık.
+Artık aynı ilkeleri dinleme yeteneğimize nasıl uygulayacağımıza bir bakalım.
 
+Hepsinden önce, başka birini tam olarak anlamak istiyorsak, empati kurarak dinlememiz gerekir.
+Bu da diğerleri için kendilerinin hislerini tam olarak ifade edebilecekleri zaman ve mekan yaratmak ve aynı zamanda hissettikleri şeyi hissetmeyi denemek anlamına gelir.
 
+Pek çok insan bunu yapmayı başaramaz ve onun yerine tavsiyeler, çözümler ya da güvenceler sunarlar.
+Fakat diğer insanların sorunlarını düzeltmeye çalışırken, muhtemelen onların hislerini içtenlikle dinlemezsiniz.
+En iyi plan dikkatlice dinlemek ve ihtiyaçları, hisleri ve ricaları hakkında sorular sormaktır.
+Bazen gerçekten tavsiyeye ya da sadece bir sarılmaya ihtiyaçları vardır ama bazen kendileri bile neye ihtiyaçları olduğunu bilmezler.
 
+Burada yansıtma ve yorumlamanın gücü devreye girer.
+Bazen insanların gerçekten ihtiyaç duydukları şeyi, ihtiyaç duyduklarını düşündükleri ve söyledikleri şeyle aynı olmaz.
+Yansıtma ve yorumlama yoluyla, onların ne iletmeye çalıştıklarını anlamalarına yardım edebilirsiniz.
 
+Örneğin patronun "iyi bir iletişimci değilsin" diyebilir.
+Bu kafanı karıştırır çünkü bu konuda daha önce hiç yakınmamıştır.
+Dolayısıyla, ifadesini ona geri geri yansıtırsın: "iyi bir iletişimci değilim".
+Bu iletisini genişletmesi için fırsat verir ve "evet, dün kimse bilmediği için bir teslimatı kaçırdık" der.
 
+Anladığından emin olmak için kendi kelimelerine söylediği şeyi ona yorumlarsın: "bir teslimat kaçırdık çünkü takım üyelerin hiçbiri teslimatın farkında değildi".
+Bu onu doğru anladığını ve eğer gerekliyse, seni düzeltmesine izin verdiğini gösterir.
 
+Ama onun yerine, söylediğin şeyi onaylar ve cevap verir: "evet, bir teslimatın vakti geldiğinde herkesin farkında olması için sistemi değiştirmemiz gerekiyor" der.
+Şiddetsiz iletişim kullanımı, sorunun sende değil, şu an kullanımda olan istemle sorunu olduğunu anlamasına yardım etti.
 
+# Şiddetsiz İletişim, Çatışmaları Çözmek için Güçlü Bir Araçtır
+Hiçbirimiz günlük hayatımızda çatışmalardan kaçamayız.
+Neyse ki, şiddetsiz iletişimin ilkeleri çatışmaları çözmek için kullanışlı araçlar sağlar.
+Bu yüzden, işte gelecek sefer şimşekler çakmaya başladığında yapacağımız şey: ilk ve en önemlisi, insancıl bağlantı kurman gerekir.
+Bu bağlantı, tarafların birbirlerinin duygularını ve ihtiyaçlarını o andan itibaren anlayabildiği bir başlangıç noktasıdır.
 
+Sonraki adım bağlantı niyetinin samimi bir yerden geldiğinden emin olmaktır.
+Amacın bir tarafın diğerini manipüle etmesi değil, onun yerine iki tarafın da kendi hislerini ve ihtiyaçlarını ifade edebildiği güvenli alan yaratmak olduğu en başından itibaren açık olmalıdır.
+Bu da gözlem ile, hisleri tanımlayarak ve bunları iki tarafın da ihtiyaçlarıyla ve somut, makul ricalarıyla birleştirerek başarılabilir.
 
+Bu ricalar sonrasında arabulmaya değil, memnuniyete ulaşma amacıyla incelenir.
+Memnuniyet iki tarafın da ihtiyaçları tamamen doyurulduğunda oluşur.
+Bu iki tarafın da bir şeylerden vazgeçtiği ve iki tarafın da tamamen tatmin olmadığı arabulmanın tersini anlatır.
 
+Örneğin, bir çift arasında köpeklerini yürüyüşe çıkarma konusnda bir tartışma hayal edin.
+Çiftlerden biri "köpeği hiçbir zaman dışarı çıkarmıyorsun" der ve diğer taraf "köpeği dışarı her zaman ben çıkarıyorum" diye cevap verir.
+Gözlemledikten ve onların duygularını tanımladıktan sonra, ikisi de köpeği dışarı çıkarmanın, kendilerinin takvimleriyle çakıştığını fark ederler.
 
+Bir taraf, "sabahları köpeği senin dışarıya çıkarmana ihtiyacım var çünkü her zaman treni kaçırıyorum" der.
+Ve diğer taraf "bana uyar fakat senden golf oynayabilmem için köpeği hafta sonları dışarı çıkarmanı istemek adil gibi görünüyor" der.
+Ricalarında anlaşırlar ve durum iki tarafın da memnun olmasıyla sonuçlanır.
 
+# Ne Öğrendik?
+Bu kitabın ana mesajı şöyle: **şiddetsiz iletişim, kişilerarası ilişkilerimizdeki ve kendi kalbimizdeki çatışmayı azaltmak için sistematik bir yöntemdir.
+Söylediğimiz her bir kelimeye şefkat ekleyerek ve kendimiz de dahil olmak üzere herkesin ihtiyaçlarını dinleyerek dünyayı adım adım daha iyi bir yer haline getirebilriz.**
 
-
-
-
+Gelecek sefer kızgın hissettiğinde, derin bir nefes al ve kızgınlığının kaynağını sorgula.
+Kendine "kime kızgınım?" diye sormak yerine "neden kızgınım?" diye sor.
+Duygularınla kızgınlığının köklerine seslenerek, seni kızdıranın diğer insanlar değil senin tepkin olduğunun farkına varacaksın.
+Çok geçmeden, durumun kontrolünü tekrar ele alacaksın ve hangi ihtiyaçlarının karşılanmadığını tanımlayacaksın.
