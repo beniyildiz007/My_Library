@@ -131,54 +131,76 @@ Aynı şey geçmişte yapmış olabileceğiniz ve şimdi pişman olduğunu bir �
 Kendinizi ve hatalarınızı kabul ederek kendinizi olumsuz düşücnelerden ve uykusuz gecelerden kurtarmak için daha donanımlı olacaksınız.
 
 # Düşünceleriniz güçlüdür ve bu yüzden onların sizin için çalışmasını sağlayın!
+Modern dünyamızda eyleme son derece odaklanmış durumdayız.
+Öte yandan bir şeyleri yeniden düşünmek ve düşüncelerimizi incelemek için zman ayırmak, genellikle uygulamadığımız alışkanlıklardır.
+Ama uygulamayız.
 
+Düşünceler gerçekliklerimizi yarattıkları ve bizi hayatta gitmek istediğimiz yere götürdükleri için güçlüdürler.
+Başlamak için ne istediğinizi belirlemeli ve oraya nasıl gideceğinize açık olmalısınız.
+Belki bir yazar olmak istiyorsunuz ancak yayımlanmış bir yazar olmanın yolu belirsizdir.
+Bu sürecin nasıl işlediğini anlamak için edebi rol modelerine bakabilir ve kendi yolunuz için ilham bulmak üzere hayallerini nasıl gerçekleştirdiklerini inceleyebilirsiniz.
+Kendi tarzınızı hissettikçe ve ilerleme kaydetmeye başladığınızda, kendinize yazar derken daha rahat hissetmeye başlayacaksınız.
 
+Bu da bizi düşüncelerinizin sizin için çalışmasını sağlayacak bir sonraki yola götürür: sadece kendinizi olmak istediğiniz kişi olarak düşünün.
+İstediğiniz şey zaten bir gerçeklikmiş gibi davranırsanız, olumsuz düşünceler sizi engelleyemez.
+Başka bir deyişle, sahiden yapana kadar öyleymiş gibi yap!
 
+Harika bir sunucu olmayı hayal ediyor ama kalabalığa hitap etmekten korkuyorsanız, titreyen ellerinize veya ürkek sesinize odaklanmayın.
+Bunun yerine kendinizi eğlenceli, anlamlı konuşmalary aparken görsleleştirin ve böylece yakında daha özgüvenli bir şekilde sunum yapacaksınız.
+Ne kadar çok konuşma yaparsanız özgüveniniz o kadar artar ve topluluk önünde konuşmanız o kadar gelişir -buna verimli döngü deir.
 
+Düşünme gücünüzü daha da arttırmak için hedeflerinizi olabildiğince spesifik bir şekilde hayal etmeye zaman ayırın.
+Yazar örneğimize geri dönelim.
+Romancılardan denemecilere ve gerçek suç yazarlarına kadar pek çok türde büyük yazar vardır.
+Ne tür bir yazar olmak istediğinizi belirlediğinizde hedefinize giden yol daha net hale gelecektir.
 
+# Ertelemeler, bahaneler ve tereddütlerle mücadele edin ve hiçbir şey sizi harekete geçmekten alıkoyamaz
+Hedeflerinize ulaşmak söz konusu olduğunda düşünce güçlü bir araçtır, ancak gerçek eylemle birleştirilmesi gerekir.
+Ve olumlu davranmak için önce erteleme ve tereddüt etmenin üstesinden gelmeniz lazım.
+Ertelediğimiz zaman başarısızlık korkusunun kararlarımızı takip etmemizi engellemesine izin veririz.
+Belirli bir görevi yerine getirmeye yetkili olmadığınızı düşünüyorsanız, denememek için herhangi bir sebep ararsınız.
+"Yazım yeterince iyi değil" veya "masrafları bile karşılamaz" gibi düşünceler sizi geride tutacaktır.
 
+Bu bahanelerin üstesinden gelmek için kendinizi amacınıza ikna etmeniz gerekir.
+Kararlılığınız zayıfsa bu hedeflerinizi yeniden tanımlamanız gerektiğinin bir işareti olabilir.
 
+Harekete geçmek ayrıca tereddütlerin üstesinden gelmenizi gerektirir.
+Bu kolay değil.
+Çoğu zaman, hoşlanmayabileceğimiz biri gibi olmaktan korktuğumuzda tereddüt ederiz.
+Diyelim ki bir sahne oyuncusu olma hayalini kuruyorsunuz, seyircilere hayranlık uyandıran ve güçlü bir varlığa sahip biri.
+Ama bu hedefi ciddiye aldığınızda tereddüt ediyorsunuz.
+Sonuçta dışa dönükleri asla sevmediniz ve de size çoğu sahne oyuncusu olumsuz yargılara maruz kalıyor gibi geliyor.
+Oyuncu olmak sizi en sevmediğiniz kişi haline getirecek mi?
+Kısa cevap: hayır.
+Sadece tereddütlerinizin üstesinden gelmeyi öğrenmeniz gerekiyor.
 
+Bunu yapmak için başkalarını yargılamayı bırakın.
+Sonra kendinize zor sorular sorarak zaman geçirin "gerçekten bir oyuncu olmak istiyor muyum?" ve "bu beni mutlu edecek mi?".
 
+Eğer bu sorulara cevabınız evetse, tereddütlerin ve ertlemeleerin gerçekte ne olduklarını anlamanızın zamanı gelmiştir.
+Daha fazla bahane yok.
 
+# Arkadaşlıklardan, alışkanlıklara ve paraya kadar, hayatınızın tüm yönleriyle hedefinize odaklanın
+Demek hayalinizdeki hedefe ulaşmak için yaşam yolunuzu değiştirmeye karar verdiniz.
+Ama ne kadar ileri gideceksiniz?
+Yetenekli insanlar çoğu zaman erken pes ettikleri için hayallerini yaşayamazlar.
 
+Başarısızlığın hayatın bir gerçeği olduğunu ve hepimizin reddedildiğini hatırlayın.
+Örneğin basketbol efsanesi Michael Jordan lise basketbol takımına kabul edilmedi ve ünlü film yönetmeni Steven Spielberg film okulundan üç kez reddedildi.
 
+Reddedilmek herkesin yolculuğunun bir parçası olsa da bırakmak hayallerinizin peşinden giderken asla yapmamanız gereken bir şeydir.
+Bunun yerine hatalarınızdan ders alın ve her zaman istediğiniz hayatı yaratana kadar denemeye devam edin.
 
+Vazgeçme cazibesinin üstesinden gelmek için hayatınızın her alanından sorumlu olarak kalmanız gerekir.
+Alışkanlıklarını, çevreniz veya arkadaşlarınız hedeflerinize ulaşmayı zorlaştırıyorsa, bazı düşünceli değişikliklerin yapılma vakti gelmiştir.
+Aslında yaşam amacınıza odaklanan yeni bir ortam ve yaşam tarzı yaratmak, hedeften sapmamanın en iyi yollarından biridir.
 
+Eğer gelecek vadeden bir sporcuysanız etrafınızı benzer tutkuları olan insanlarla çevreleyin.
+Gününüzü hedeflerinizle yeniden bağlantılı kurmanıza yardımcı olacak şekilde başlatın ve bitirin.
+İlerledikçe size daha fazla yardımcı olabilecek grupları, yerleri ve toplulukları keşfedin.
 
+Tasarruf ve harcama konusunda özenli olmak iyi olsa da zaman zaman büyük harcamalar yapmak hayatınızı iyileştirecekse bunda bir sorun yoktur.
+Paranızı hedeflerinize uygun yaşamak için kullanın.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Nihayetinde yeni yaşamınız için açık niyetler, güçlü arzular ve gerçek hayattaki eylemler aracılığıyla ortaya çıkacaktır.
+Başkalarının sizin hakkınızda ne düşündüğünü bir kenara bırakın ve en önemlisi hayallerinizi yaşamak için kendinize izin verin!
