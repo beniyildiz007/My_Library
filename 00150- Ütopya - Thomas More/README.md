@@ -174,33 +174,79 @@ Krallar Avrupa'daki krallar gibi değildir.
 Adil insanlardır, halkına iyi davranır.
 Ütopyada mülkiyet yoktur.
 Tüm mülk ortaktır kimse kimsenin malını ele geçirmeye çalışmaz.
+Devlet herkes için eşitliği sağlar.
+Krallar barışı değil savaşı isterler, danışmanlar da daha yüksek mevkileri, ortada varolan sorunun da en büyük sorumlusu soylulardır More'a göre.
+Ütopyadaysa bu yoktur.
+Sınıf ayrımı yoktur.
+Savaş yoktur.
+Ütopya halkı sadece kendisinin değil düşmanın da zarar görmesini istemez zaten.
+İdeal bir sistemdir kurulan.
 
+Devlet ve yöneticiler bu kadar iyiyken insanın kötü olması düşünülebilir mi?
+Bu kadar güzelliğin içinde bir fenalık düşünebilir mi insan?
+Hırsızlık yoktur yapansa köle olarak cezalandırılır.
+Herkes güzel olmayı arzular ama bunun için makyaj yapmayı, takıp takıştırmayı, mücevherlere önem vermeyi insanlar gülünç bulur.
+Halk tarımla uğraşır.
+Ekmeğini topraktan kazanır.
+Toprak insanı dinginleştirir, elektriğini alır.
+Herkes çiçek yetiştirir.
+İstediği inanca inanır.
+Kimse bir diğerini inancından dolayı ayıplamaz, ötelemez.
+İnsanların bu kadar iyi olduğu bir yerde, kendisini değil de bir başkasını düşündüğü bir ülkede, insanlar devlete baş kaldırabilir mi?
+Böyle insanların olduğu bir yerde devlet de elbette iyi olur.
 
+Thomas More yazdıklarının gerçekleşmesinin en büyük hayali olduğunu söyler.
+Ama bunun zor olduğunu da bilir.
+More'un ütopyasında iyi insanlar vardır iyi bir devlette yaşarlar ve kimse iyi atlara binip uzaklara gitmez çünkü daha iyisi yoktur.
+En iyi yerdir Ütopya.
+Yoktur.
+Yokyerdir ama en iyisidir.
 
+# İlerleme için kaos mu düzen mi?
+Kaosu hiçbirimiz sevmeyiz.
+Ama ilerleme için kaos mu gereklidir düzen mi?
+Yoksa ütopik metinler kendi içinde gizli ve güçlü bir kaos besliyor olabilir mi?
 
+Thomas More her ne kadar kaosun içinde yaşayıp kurgusal düzlemde çok sakin ve düzenli bir hayat kurmuş da olsa bu dünyanın nasıl ilerleyeceği ve varlığını sürdüreceğine dair tam bir cevap veremez.
+Gerçek hayatta uygulanmaya konan çoğu ütopyanın gerçek karşısında parçalanması ve uygulanamamasının bir sebebi de bu olabilir.
+Ütopyalar gerçekte ilerlemenin sebebini kaçırıyor olabilirler.
+Ama bu elbette doğaldır.
+Çünkü ütopyalar ilerleme fikrinden değil düzen ve sakinlik fikri üzerinden kurar kendini.
 
+Peki o zaman ütopyalar uygulanabilir metinler midir?
+Bunun cevabı elbette hayır olacaktır.
+Thomas More da bunun bilincindedir.
+Ama zaten uygulanması gerekemez.
+O bir idealdir ve insanlar ne kadar ideal olana yaklaşırsa o kadar güzel bir hayata kavuşur.
+En nihayetinde komünizm de kapitalizm de bir islam devleti de ütopyadır ve aslolan bunları kurmak değil aksine bunların idealine yaklaşmaktır.
 
+İlerleme olması için çatışma gerekir.
+Bu insanın kendi iç dünyası için de geçerlidir.
+İnsanın iç dünyasında stres, kaygı, heyecan, arzu olmazsa insan gelişimini tamamlayamaz.
+Dünyada da devletlerin ilerleyebilmesi gelişebilmesi için kaosa ihtiyaç vardır.
+Elbette bu bir kaos güzellemesi değildir.
+Sınırı aşmayacak dozda bu duyguları yaşamazsak ne ilerleme sağlayabiliriz ne de gelişim.
+Onun için ilerleme hayalimiz varsa kaostan yardım almamız kaçınılmazdır.
 
+Tabii bir yanıyla ütopyaların kendi içinde barındırdığı tek tipleştirici, insanın özünü ortadan kaldıran, baskıcı bir yönetim tarzı ve dilini benimsemesini de göz ardı edemeyiz.
+Aslında ütopyalar düzen taraftarı olsalar ve kaosu ortadan kaldırsalar da büyük bir baskı ve insan özünü dışlayıcı bir tutum benimsediklerini söylememiz lazım.
 
+# Ütopik metinlerin gücü var mı?
+Ütopik metinlerin tarihi insanın tarihiyle neredeyse eşdeğer demiştik.
+Duvara kazınan sahnelerden anlatılan destanlara ardından yazılan metinlere kadar her birinde geleceğin olmayan yerlerine dair hikayeler bulmak mümkün.
+Peki bu kadar uzun süredir yazılan metinlerin bir etki gücü var mı?
 
+Cevap, bir etki gücü olmasına gerek yok.
+Aslolan insanın farkındalık kazanması ve kendini kaptırıp gittiği akışta bir anlığına durup düşünmesini sağlaması.
+Evet İngiltere bu metin kaleme alındığında ve sonrasında cennet olmadı ve hatta Thomas More bu metnin de etkisiyle, başından oldu.
+Ama şu bir gerçek, bugün yaşadığımız dünyanın kurulmasında temel etkiye sahip metinlerden biri oldu.
+Yüzlerce yıldır insanlar, yöneticiler, hakimler, tüccarlar bu metni okuyor ve dünyalarında bu metinden izler taşıyorlar.
+Adım atarlarken bu metnin yol göstericiliğini buluyorlar yollarında.
 
+Ütopik metinler yazıldığı anda güçsüz metinler de olsa, sonrasını kuran, kurgulayan metinler olarak ön plana çıkıyorlar.
+Tıpkı onca metin arasından burayı okumak istemeniz gibi sizi kendisine çekiyorlar.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+# Son
+Ütopya yazıldığı dönemden başlayarak sonraki her dönemde bir şekilde adından söz ettirmiş, modern siyasal düşünceyi kuran metinlerden de birisi olmayı başarmıştır.
+Başta kendi dönemindeki yöneticilere, dini adamlarına ve halka eleştiriler yöneltse de insanın olduğu her çağa da büyük sözler söyleyen, yol gösteren bir metin olma özelliğini korumaktadır.
+Ütopya baskıcı bir insan anlayışına ve tek tipleştirici bir inanca sahip de olsa düzenin sağlanması ya da en azından devletin ne olmasına dair söyleidkleriyle her dönemin insanına ve meslek erbabına bir şeyler söyleyen eşsiz bir eserdi.
